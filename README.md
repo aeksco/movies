@@ -6,6 +6,8 @@
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
 - WALL-E (8/6/19)
+- The Foot Fist Way (8/7/19)
+- The Room (8/7/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
