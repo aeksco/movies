@@ -7,7 +7,13 @@
 - Beauty and the Beast (1991) (8/6/19)
 - WALL-E (8/6/19)
 - The Foot Fist Way (8/7/19)
-- The Room (8/7/19)
+- Ratatouille (8/8/19)
+- Jurassic Park (8/8/19)
+- The Favorite (8/10/19)
+- The Favorite (8/17/19)
+- Spiderman - Into The Spiderverse (8/17/19)
+- Taxi Driver (8/17/19)
+- The Godfather Part II (8/18/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
