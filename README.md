@@ -14,6 +14,10 @@
 - Spiderman - Into The Spiderverse (8/17/19)
 - Taxi Driver (8/17/19)
 - The Godfather Part II (8/18/19)
+- Amadeus (8/18/19)
+- Anthony Jeselnik - Fire in the Maternity Ward (8/18/19)
+- Rounders (8/24/19)
+- The Foot Fist Way (8/25/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
@@ -23,6 +27,7 @@
 - Mary Poppins Returns (7/13/19)
 - The Wolf of Wall St (7/20/19)
 - Pulp Fiction (7/20/19)
+- Once Upon A Time In Hollywood (7/25/19)
 - Inglorious Basterds (7/29/19)
 - Network (7/29/19)
 
@@ -111,31 +116,84 @@
 ---
 
 ### TO WATCH
+- Heat (C)
+- The Town (C)
+- Tombstone (C)
+- Die Hard (C)
+- Mystic River (C)
+- True Romance (C)
+- Friday (C)
+- John Wick (C)
+- Election (C)
+- Dazed and Confused (C)
+- Apocalypse Now (C)
 - Mission: Impossible
-- Dazed and Confused
-- The Social Network
 - Jerry Maguire
-- Mystic River
-- The Town
-- Rounders
-- Heat
-- The Fast and the Furious
-- Tombstone
+- Top Gun
+- Edward Scissorhands
+- Heathers
+- Cinema Paradiso
+- Blue Velvet
+- Chinatown
+- Harold and Maude
+- The Graduate
+- Metropolis
+- Do The Right Thing
+- Dead Poet's Society
+- All The President's Men
+- Jaws
+- Planes, Trains, and Automobiles
+- Fast Times at Ridgemont High
+- Munich
+- Lincoln
+- The Goonies
+- Who Framed Rodger Rabbit
+- Rocky
+- Casablanca
+- One Flew Over The Cuckoo's Nest
+- Roman Holiday
+- West Side Story
+- To Kill A Mockingbird
+- The Sound Of Music
+- Moonlight
+- Her
+- Eternal Sunshine of the Spotless Mind
+- Lost In Translation
+- E.T.
+- Close Encounters Of The Third Kind
+- Schindler's List
+- Varsity Blues
+- 48 Hrs
 - Con Air
-- True Romance
-- Taken
-- My Best Friend's Wedding
-- Die Hard
+- The Fast and the Furious
 - Midnight Run
 - Training Day
-- Ocean's 11
 - Michael Clayton
-- Friday
 - Speed
-- You've Got Mail
 - Point Break
 - White Men Can't Jump
 - Any Given Sunday
+- Swingers
 - Asphalt Jungle
 - City of Your Final Destination
 - The Remains of the Day
+- Ocean's 11
+- The Social Network
+- My Best Friend's Wedding
+- You've Got Mail
+- Taken
+- Midnight Cowboy
+- Before Sunrise
+- Boyhood
+- 8 1/2
+- Seven Samurai
+- Mulholland Drive
+- The Good, The Bad, and The Ugly
+- The Piano
+- The Terminator
+- M
+- The Seventh Seal
+- I Am Sam
+- The Verdict
+- Carol
+- Rebel Without A Cause
