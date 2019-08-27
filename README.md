@@ -18,6 +18,7 @@
 - Anthony Jeselnik - Fire in the Maternity Ward (8/18/19)
 - Rounders (8/24/19)
 - The Foot Fist Way (8/25/19)
+- Mortal Engines (8/26/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
