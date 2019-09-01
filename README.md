@@ -19,6 +19,8 @@
 - Rounders (8/24/19)
 - The Foot Fist Way (8/25/19)
 - Mortal Engines (8/26/19)
+- Bill and Ted's Excellent Adventure (8/31/19)
+- Can You Ever Forgive Me (8/31/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
