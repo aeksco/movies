@@ -19,6 +19,7 @@
 - Rounders (8/24/19)
 - The Foot Fist Way (8/25/19)
 - Mortal Engines (8/26/19)
+- Planes, Trains, and Automobiles (8/29/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
@@ -143,7 +144,6 @@
 - Dead Poet's Society
 - All The President's Men
 - Jaws
-- Planes, Trains, and Automobiles
 - Fast Times at Ridgemont High
 - Munich
 - Lincoln
