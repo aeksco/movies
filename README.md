@@ -3,6 +3,10 @@
 
 ---
 
+### September 2019
+- Sunshine Cleaning (9/1/19)
+- Robot & Frank (9/1/19)
+
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
 - WALL-E (8/6/19)
@@ -20,6 +24,8 @@
 - The Foot Fist Way (8/25/19)
 - Mortal Engines (8/26/19)
 - Planes, Trains, and Automobiles (8/29/19)
+- Bill and Ted's Excellent Adventure (8/31/19)
+- Can You Ever Forgive Me (8/31/19)
 
 ### July 2019
 - Bohemian Raphsody (7/7/19)
