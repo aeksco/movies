@@ -6,6 +6,7 @@
 ### September 2019
 - Sunshine Cleaning (9/1/19)
 - Robot & Frank (9/1/19)
+- Monty Python & The Holy Grail (9/2/19)
 
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
