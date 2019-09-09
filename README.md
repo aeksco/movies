@@ -7,6 +7,10 @@
 - Sunshine Cleaning (9/1/19)
 - Robot & Frank (9/1/19)
 - Monty Python & The Holy Grail (9/2/19)
+- Ocean's Eleven (9/7/19)
+- I, Tonya (9/7/19)
+- Con Air (9/8/19)
+- Mary Queen of Scots (9/8/19)
 
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
