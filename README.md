@@ -11,6 +11,8 @@
 - I, Tonya (9/7/19)
 - Con Air (9/8/19)
 - Mary Queen of Scots (9/8/19)
+- The Founder (9/14/19)
+- Punch Drunk Love (9/14/19)
 
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
@@ -129,83 +131,135 @@
 ---
 
 ### TO WATCH
-- Heat (C)
+- Heat (C) (K)
 - The Town (C)
-- Tombstone (C)
-- Die Hard (C)
-- Mystic River (C)
-- True Romance (C)
+- Tombstone (C) (K)
+- Die Hard (C) (K)
+- Mystic River (C) (K)
+- True Romance (C) (K)
 - Friday (C)
-- John Wick (C)
+- John Wick (C) (K)
 - Election (C)
-- Dazed and Confused (C)
-- Apocalypse Now (C)
+- Dazed and Confused (C) (K)
+- Apocalypse Now (C) (K)
+- Hearts of Darkness  (C) (K)
 - Mission: Impossible
-- Jerry Maguire
+- Mission: Impossible 3+ (K)
+- Jerry Maguire (K)
 - Top Gun
-- Edward Scissorhands
-- Heathers
-- Cinema Paradiso
-- Blue Velvet
-- Chinatown
-- Harold and Maude
-- The Graduate
-- Metropolis
-- Do The Right Thing
-- Dead Poet's Society
+- Edward Scissorhands (K)
+- Heathers (K)
+- Cinema Paradiso (K)
+- Blue Velvet (K)
+- Chinatown (K)
+- Harold and Maude (K)
+- The Graduate (K)
+- Metropolis (K)
+- Do The Right Thing (K)
+- Dead Poet's Society (K)
 - All The President's Men
-- Jaws
-- Fast Times at Ridgemont High
-- Munich
+- Jaws (K)
+- Fast Times at Ridgemont High (K)
+- Munich (K)
 - Lincoln
 - The Goonies
-- Who Framed Rodger Rabbit
-- Rocky
-- Casablanca
-- One Flew Over The Cuckoo's Nest
-- Roman Holiday
+- Who Framed Rodger Rabbit (K)
+- Rocky (K)
+- Casablanca (K)
+- One Flew Over The Cuckoo's Nest (K)
+- Roman Holiday (K)
 - West Side Story
-- To Kill A Mockingbird
+- To Kill A Mockingbird (K)
 - The Sound Of Music
-- Moonlight
-- Her
-- Eternal Sunshine of the Spotless Mind
-- Lost In Translation
-- E.T.
-- Close Encounters Of The Third Kind
-- Schindler's List
+- Moonlight (K)
+- Her (K)
+- Eternal Sunshine of the Spotless Mind (K)
+- Lost In Translation (K)
+- E.T. (K)
+- Close Encounters Of The Third Kind (K)
+- Schindler's List (K)
 - Varsity Blues
-- 48 Hrs
-- Con Air
+- 48 Hrs (K)
 - The Fast and the Furious
 - Midnight Run
-- Training Day
+- Training Day (K)
 - Michael Clayton
-- Speed
-- Point Break
-- White Men Can't Jump
-- Any Given Sunday
-- Swingers
+- Speed (K)
+- Point Break (K)
+- White Men Can't Jump (K)
+- Any Given Sunday (K)
+- Swingers (K)
 - Asphalt Jungle
 - City of Your Final Destination
 - The Remains of the Day
-- Ocean's 11
-- The Social Network
+- The Social Network (K)
 - My Best Friend's Wedding
-- You've Got Mail
-- Taken
-- Midnight Cowboy
-- Before Sunrise
+- You've Got Mail (K)
+- Taken (K)
+- Midnight Cowboy (K)
+- Before Sunrise (K)
 - Boyhood
 - 8 1/2
-- Seven Samurai
-- Mulholland Drive
-- The Good, The Bad, and The Ugly
-- The Piano
-- The Terminator
-- M
-- The Seventh Seal
-- I Am Sam
+- Seven Samurai (K)
+- Mulholland Drive (K)
+- The Good, The Bad, and The Ugly (K)
+- The Piano (K)
+- The Terminator (K)
+- M (K)
+- The Seventh Seal (K)
+- I Am Sam (K)
 - The Verdict
 - Carol
-- Rebel Without A Cause
+- Rebel Without A Cause (K)
+- Braveheart (K)
+- The Last of the Mohicans (K)
+- There Will Be Blood
+- Booksmart
+- Birdman (K)
+- The Revenant
+- First Man
+- Casino (K)
+- American Hustle (K)
+- Tootsie
+
+Kyle's Recs
+- Bone Tomahawk
+- Brawl in cell block 99
+- Turbokid
+- Dead Man's Shoes
+- Death Sentence
+- The Thing
+- Dead Ringers
+- Eastern Promises
+- Dragged Across Concrete
+- John Dies at the End
+- Tusk
+- Hardcore Henry
+- Crank
+- Crank 2
+- The Patriot
+- The Machinist
+- The King of Comedy
+- Seven Psychopaths
+- In Brugges
+- Old Boy
+- House of the Devil
+- Satan's Slaves
+- Rosemary's Baby
+- The Void
+- You're Next
+- Behind The Mask: The Rise of Leslie Vernon
+- Love & Peace (drunk Kyle's favorite movie)
+- Pacific Rim
+- Bram Stoker's Dracula
+- Before The Devil Knows You're Dead
+- The Fanatic
+
+Kyle's Rough Recs
+- Landmine Goes Click
+- Inside
+- Nymphomaniac
+- House That Jack Built
+- Maniac
+- Henry: Portrait of a Serial Killer
+- Cold Fish
