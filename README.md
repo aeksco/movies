@@ -211,6 +211,7 @@
 - The Verdict
 - Carol
 - Rebel Without A Cause (K)
+- The Wolf's Call
 - Braveheart (K)
 - The Last of the Mohicans (K)
 - There Will Be Blood
@@ -263,3 +264,4 @@ Kyle's Rough Recs
 - Maniac
 - Henry: Portrait of a Serial Killer
 - Cold Fish
+
