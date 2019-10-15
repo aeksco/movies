@@ -13,6 +13,17 @@
 - Mary Queen of Scots (9/8/19)
 - The Founder (9/14/19)
 - Punch Drunk Love (9/14/19)
+- The Lord of the Rings: The Two Towers (9/15/19)
+- The Lord of the Rings: The Return of the King (9/15/19)
+- Waiting For Guffman (9/18/19)
+- The Iron Giant (9/18/19)
+- The Big Short (9/19/19)
+- Gravity (9/19/19)
+- The Lego Movie: The Second Part (9/22/19)
+- Snowpiecer (9/22/19)
+- Jerry Maguire (9/23/19)
+- Booksmart (9/24/19)
+- You Can't Kill Meme (9/25/19)
 
 ### August 2019
 - Beauty and the Beast (1991) (8/6/19)
@@ -265,3 +276,9 @@ Kyle's Rough Recs
 - Henry: Portrait of a Serial Killer
 - Cold Fish
 
+Sam's Recs
+- The Amazing Jonathan Doc (Hulu)
+- Enter The Void
+- Climax
+- The Beguiled
+- Lost In Translation
