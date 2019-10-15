@@ -3,6 +3,13 @@
 
 ---
 
+### October 2019
+- Doubt (10/5/19)
+- Insidious (10/5/19)
+- The Patriot (10/5/19)
+- Rain Man (10/6/19)
+- El Camino: A Breaking Bad Movie (10/14/19)
+
 ### September 2019
 - Sunshine Cleaning (9/1/19)
 - Robot & Frank (9/1/19)
