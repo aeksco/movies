@@ -3,6 +3,25 @@
 
 ---
 
+### November 2019
+- Step Brothers (11/7/19)
+- Prometheus (11/8/19)
+- Saving Private Ryan (11/9/19)
+- The Sound of Music (11/13/19)
+- Cinderella (11/13/19)
+- A Bug's Life (11/13/19)
+- The Lion King (11/14/19)
+- Star Wars: Rogue One (11/14/19)
+- Toy Story 2 (11/16/19)
+- The Incredibles (11/16/19)
+- Star Wars: The Force Awawkens (11/17/19)
+- Toy Story 3 (11/17/19)
+- Princess Mononoke (11/20/19)
+- Star Wars: The Empire Strikes Back (11/22/19)
+- Star Wars: Return Of The Jedi (11/22/19)
+- Us (11/24/19)
+- Knives Out (11/27/19)
+
 ### October 2019
 - Doubt (10/5/19)
 - Insidious (10/5/19)
@@ -10,6 +29,7 @@
 - Rain Man (10/6/19)
 - Love & Mercy (10/6/19)
 - El Camino: A Breaking Bad Movie (10/14/19)
+- Jojo Rabbit (10/26/19)
 
 ### September 2019
 - Sunshine Cleaning (9/1/19)
