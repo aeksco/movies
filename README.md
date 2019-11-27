@@ -12,6 +12,7 @@
 - A Bug's Life (11/13/19)
 - The Lion King (11/14/19)
 - Star Wars: Rogue One (11/14/19)
+- Star Wars: A New Hope (11/16/19)
 - Toy Story 2 (11/16/19)
 - The Incredibles (11/16/19)
 - Star Wars: The Force Awawkens (11/17/19)
