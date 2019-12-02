@@ -3,7 +3,13 @@
 
 ---
 
+### December 2019
+- The Irishman (TODO)
+
 ### November 2019
+- Moonrise Kingdom (11/2/19)
+- Star Wars: Ep. III - Revenge of the Sith (11/3/19)
+- Idiocracy (11/3/19)
 - Step Brothers (11/7/19)
 - Prometheus (11/8/19)
 - Saving Private Ryan (11/9/19)
@@ -31,6 +37,8 @@
 - Love & Mercy (10/6/19)
 - El Camino: A Breaking Bad Movie (10/14/19)
 - Jojo Rabbit (10/26/19)
+- Star Wars: Ep. I - The Phantom Menace (10/31/19)
+- Star Wars: Ep. II - Attack of the Clones (10/31/19)
 
 ### September 2019
 - Sunshine Cleaning (9/1/19)
