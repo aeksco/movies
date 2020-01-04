@@ -2,9 +2,21 @@
 :movie_camera: An on-going list of movies I've watched
 
 ---
+### January 2020
+- Catch Me If You Can (01/2/19)
 
 ### December 2019
-- The Irishman (TODO)
+- The Irishman (Date #1)
+- Home Alone 2 (??)
+- Austin Powers: International Man of Mystery (12/8/19)
+- Austin Powers: The Spy Who Shagged Me (12/6/19)
+- Austin Powers: Goldmember (12/15/19)
+- Star Wars: The Last Jedi (12/20/19)
+- Star Wars: The Rise of Skywalker (??)
+- Star Wars: The Last Jedi (??)
+- Star Wars: The Rise of Skywalker (??)
+- The Irishman (12/30/19)
+- Echo in the Canyon (12/29/19)
 
 ### November 2019
 - Moonrise Kingdom (11/2/19)
@@ -28,6 +40,7 @@
 - Star Wars: Return Of The Jedi (11/22/19)
 - Us (11/24/19)
 - Knives Out (11/27/19)
+- The Laundromat (11/30/19)
 
 ### October 2019
 - Doubt (10/5/19)
@@ -186,14 +199,12 @@
 - Mystic River (C) (K)
 - True Romance (C) (K)
 - Friday (C)
-- John Wick (C) (K)
 - Election (C)
 - Dazed and Confused (C) (K)
 - Apocalypse Now (C) (K)
 - Hearts of Darkness  (C) (K)
 - Mission: Impossible
 - Mission: Impossible 3+ (K)
-- Jerry Maguire (K)
 - Top Gun
 - Edward Scissorhands (K)
 - Heathers (K)
