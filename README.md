@@ -1,11 +1,21 @@
 # movies
+
 :movie_camera: An on-going list of movies I've watched
 
 ---
+
 ### January 2020
+
 - Catch Me If You Can (01/2/19)
+- Tiptoes (01/03/19)
+- Collateral Beauty (01/03/19)
+- Les Miserables (01/04/19)
+- Amadeus (01/08/19)
+- John Wick 2 (01/11/19)
+- John Wick 3 (01/12/19)
 
 ### December 2019
+
 - The Irishman (Date #1)
 - Home Alone 2 (??)
 - Austin Powers: International Man of Mystery (12/8/19)
@@ -19,6 +29,7 @@
 - Echo in the Canyon (12/29/19)
 
 ### November 2019
+
 - Moonrise Kingdom (11/2/19)
 - Star Wars: Ep. III - Revenge of the Sith (11/3/19)
 - Idiocracy (11/3/19)
@@ -43,6 +54,7 @@
 - The Laundromat (11/30/19)
 
 ### October 2019
+
 - Doubt (10/5/19)
 - Insidious (10/5/19)
 - The Patriot (10/5/19)
@@ -54,6 +66,7 @@
 - Star Wars: Ep. II - Attack of the Clones (10/31/19)
 
 ### September 2019
+
 - Sunshine Cleaning (9/1/19)
 - Robot & Frank (9/1/19)
 - Monty Python & The Holy Grail (9/2/19)
@@ -76,6 +89,7 @@
 - You Can't Kill Meme (9/25/19)
 
 ### August 2019
+
 - Beauty and the Beast (1991) (8/6/19)
 - WALL-E (8/6/19)
 - The Foot Fist Way (8/7/19)
@@ -96,6 +110,7 @@
 - Can You Ever Forgive Me (8/31/19)
 
 ### July 2019
+
 - Bohemian Raphsody (7/7/19)
 - Operation Condor (7/12/19)
 - Synecdoche, New York (7/13/19)
@@ -108,6 +123,7 @@
 - Network (7/29/19)
 
 ### June 2019
+
 - Whiplash (6/1/19)
 - Mad Max: Fury Road (6/1/19)
 - X-Men: First Class (6/1/19)
@@ -129,6 +145,7 @@
 - Mystic Pizza (6/22/19)
 
 ### May 2019
+
 - Mean Girls (5/4/19)
 - Moneyball (5/4/19)
 - Godfather Pt. III (5/5/19)
@@ -155,6 +172,7 @@
 - Game Of Thrones - The Last Watch (5/29/19)
 
 ### March 2019
+
 - Behind The Curve (Netflix Doc) (3/2/19)
 - Casting JonBenet (3/2/19)
 - Get Me Rodger Stone (3/3/19)
@@ -167,6 +185,7 @@
 - Layer Cake (3/28/19)
 
 ### February 2019
+
 - Solo
 - As Good As It Gets
 - Incredibles 2
@@ -192,6 +211,7 @@
 ---
 
 ### TO WATCH
+
 - Heat (C) (K)
 - The Town (C)
 - Tombstone (C) (K)
@@ -202,7 +222,7 @@
 - Election (C)
 - Dazed and Confused (C) (K)
 - Apocalypse Now (C) (K)
-- Hearts of Darkness  (C) (K)
+- Hearts of Darkness (C) (K)
 - Mission: Impossible
 - Mission: Impossible 3+ (K)
 - Top Gun
@@ -283,6 +303,7 @@
 - Tootsie
 
 Kyle's Recs
+
 - Bone Tomahawk
 - Brawl in cell block 99
 - Turbokid
@@ -316,6 +337,7 @@ Kyle's Recs
 - The Fanatic
 
 Kyle's Rough Recs
+
 - Landmine Goes Click
 - Inside
 - Nymphomaniac
@@ -325,6 +347,7 @@ Kyle's Rough Recs
 - Cold Fish
 
 Sam's Recs
+
 - The Amazing Jonathan Doc (Hulu)
 - Enter The Void
 - Climax
