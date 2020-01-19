@@ -13,6 +13,7 @@
 - Amadeus (01/08/19)
 - John Wick 2 (01/11/19)
 - John Wick 3 (01/12/19)
+- James and the Giant Peach (01/18/19)
 
 ### December 2019
 
