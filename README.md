@@ -4,6 +4,13 @@
 
 ---
 
+### February 2020
+- Kill Bill Vol. 1 (02/01/2020)
+- Ferris Bueller's Day Off (02/01/2020)
+- Kill Bill Vol. 2 (02/01/2020)
+- Us (02/07/2020)
+- Final Destination (02/08/2020)
+
 ### January 2020
 
 - Catch Me If You Can (01/2/19)
@@ -14,6 +21,8 @@
 - John Wick 2 (01/11/19)
 - John Wick 3 (01/12/19)
 - James and the Giant Peach (01/18/19)
+- 10 Things I Hate About You (01/25/19)
+- Lady and the Tramp (01/25/19)
 
 ### December 2019
 
