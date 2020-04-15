@@ -4,12 +4,29 @@
 
 ---
 
+### April 2020
+
+- Shawshank Redeption (04/??/20)
+- Bruce Almighty (04/14/20)
+- Eyes Wide Shut (04/14/20)
+
+### March 2020
+
+- The Godfather (03/??/20)
+- The Godfather Pt. II (03/??/20)
+- Once Upon A Time In Hollywood (03/??/20)
+- Once Upon A Time In Hollywood (03/??/20)
+- The Wolf of Wall St (4/??/20)
+- GoodFellas (03/??/20)
+
 ### February 2020
-- Kill Bill Vol. 1 (02/01/2020)
-- Ferris Bueller's Day Off (02/01/2020)
-- Kill Bill Vol. 2 (02/01/2020)
-- Us (02/07/2020)
-- Final Destination (02/08/2020)
+
+- Kill Bill Vol. 1 (02/01/20)
+- Ferris Bueller's Day Off (02/01/20)
+- Kill Bill Vol. 2 (02/01/20)
+- Us (02/07/20)
+- Final Destination (02/08/20)
+- Goodfellas (02/??/20)
 
 ### January 2020
 
