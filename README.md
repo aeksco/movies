@@ -4,6 +4,18 @@
 
 ---
 
+### May 2020
+
+- School of Rock (05/05/20)
+- Back to the Future (05/06/20)
+- Back to the Future Part II (05/08/20)
+- Dunston Checks In (05/10/20)
+- Flintstones (05/10/20)
+- Bedazzled (05/10/20)
+- Cold Mountain (05/11/20)
+- Rat Race (05/11/20)
+- Almost Heroes (05/12/20)
+
 ### April 2020
 
 - Shawshank Redeption (04/??/20)
