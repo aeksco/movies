@@ -4,6 +4,17 @@
 
 ---
 
+### July 2020
+
+- Once Upon a Time In Hollywood (07/02/20)
+- The Patriot (07/04/20)
+- Independence Day (07/04/20)
+
+### June 2020
+
+- Heat (06/??/20)
+- Election (06/??/20)
+
 ### May 2020
 
 - School of Rock (05/05/20)
@@ -251,14 +262,12 @@
 
 ### TO WATCH
 
-- Heat (C) (K)
 - The Town (C)
 - Tombstone (C) (K)
 - Die Hard (C) (K)
 - Mystic River (C) (K)
 - True Romance (C) (K)
 - Friday (C)
-- Election (C)
 - Dazed and Confused (C) (K)
 - Apocalypse Now (C) (K)
 - Hearts of Darkness (C) (K)
@@ -374,6 +383,9 @@ Kyle's Recs
 - Bram Stoker's Dracula
 - Before The Devil Knows You're Dead
 - The Fanatic
+- Living In Oblivion
+- The Maltese Falcon
+- Elevator to the Gallows
 
 Kyle's Rough Recs
 
