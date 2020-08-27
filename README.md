@@ -4,11 +4,17 @@
 
 ---
 
+### August
+- Uncle Buck (08/25/20)
+- 2001: A Space Odyssey (08/26/20)
+- Muppet Classic Theatre (08/26/20)
+
 ### July 2020
 
 - Once Upon a Time In Hollywood (07/02/20)
 - The Patriot (07/04/20)
 - Independence Day (07/04/20)
+- Independence Day Resurgence (07/??/20)
 
 ### June 2020
 
