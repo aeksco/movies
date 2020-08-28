@@ -4,10 +4,20 @@
 
 ---
 
-### August
+### August 2020
+- Harry Potter and the Sorcerer's Stone (08/22/20)
+- Harry Potter and the Chamber of Secrets (08/23/20)
+- Harry Potter and the Prisoner of Azkaban (08/24/20)
+- Ford v. Ferrari (08/25/20)
+- The Hobbit (1977) (08/25/20)
+- The Wizard of Oz (08/25/20)
+- American History X (08/25/20)
 - Uncle Buck (08/25/20)
 - 2001: A Space Odyssey (08/26/20)
 - Muppet Classic Theatre (08/26/20)
+- Joker (08/27/20)
+- Richard Jewell (08/27/20)
+- You Don't Know Jack (08/28/20)
 
 ### July 2020
 
