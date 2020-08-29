@@ -18,6 +18,7 @@
 - Joker (08/27/20)
 - Richard Jewell (08/27/20)
 - You Don't Know Jack (08/28/20)
+- Kiki's Delivery Service (08/28/20)
 
 ### July 2020
 
