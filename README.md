@@ -18,6 +18,7 @@
 - Joker (08/27/20)
 - Richard Jewell (08/27/20)
 - You Don't Know Jack (08/28/20)
+- The Animatrix (08/28/20)
 - Kiki's Delivery Service (08/28/20)
 - Once Upon a Time In Hollywood (08/29/20)
 - Wind River (08/29/20)
