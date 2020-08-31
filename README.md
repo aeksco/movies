@@ -19,6 +19,10 @@
 - Richard Jewell (08/27/20)
 - You Don't Know Jack (08/28/20)
 - Kiki's Delivery Service (08/28/20)
+- Once Upon a Time In Hollywood (08/29/20)
+- Wind River (08/29/20)
+- Spirited Away (08/30/20)
+- Class Action Park (08/30/20)
 
 ### July 2020
 
@@ -281,7 +285,6 @@
 
 - The Town (C)
 - Tombstone (C) (K)
-- Die Hard (C) (K)
 - Mystic River (C) (K)
 - True Romance (C) (K)
 - Friday (C)
@@ -302,7 +305,6 @@
 - Do The Right Thing (K)
 - Dead Poet's Society (K)
 - All The President's Men
-- Jaws (K)
 - Fast Times at Ridgemont High (K)
 - Munich (K)
 - Lincoln
@@ -314,7 +316,6 @@
 - Roman Holiday (K)
 - West Side Story
 - To Kill A Mockingbird (K)
-- The Sound Of Music
 - Moonlight (K)
 - Her (K)
 - Eternal Sunshine of the Spotless Mind (K)
