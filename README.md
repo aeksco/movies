@@ -24,6 +24,7 @@
 - Wind River (08/29/20)
 - Spirited Away (08/30/20)
 - Class Action Park (08/30/20)
+- The Tuskegee Airmen (08/31/20)
 
 ### July 2020
 
