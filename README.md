@@ -4,6 +4,10 @@
 
 ---
 
+### September 2020
+- Ray (09/01/20)
+- Saving Private Ryan (09/02/20)
+
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
 - Harry Potter and the Chamber of Secrets (08/23/20)
