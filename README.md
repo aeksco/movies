@@ -6,6 +6,8 @@
 
 ### September 2020
 - Ray (09/01/20)
+- All the Way (09/01/20)
+- All the President's Men (09/01/20)
 - Saving Private Ryan (09/02/20)
 
 ### August 2020
