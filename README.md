@@ -9,6 +9,8 @@
 - All the Way (09/01/20)
 - All the President's Men (09/01/20)
 - Saving Private Ryan (09/02/20)
+- Driving Miss Daisy (09/04/20)
+- Josie and the Pussycats (09/06/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
