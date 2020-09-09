@@ -13,6 +13,7 @@
 - Josie and the Pussycats (09/06/20)
 - Black Knight (09/07/20)
 - The Curious Case of Benjamin Button (09/08/20)
+- The Wedding Singer (09/08/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
