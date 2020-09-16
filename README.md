@@ -1,6 +1,6 @@
 # movies
 
-:movie_camera: An on-going list of movies I've watched
+:movie_camera: An on-going list of movies I've been watching
 
 ---
 
