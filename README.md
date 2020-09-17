@@ -18,6 +18,9 @@
 - The Cider House Rules (09/15/20)
 - Bury My Heart at Wounded Knee (09/16/20)
 - Glass (09/16/20)
+- Three Kings (09/16/20)
+- Jurassic Park (09/16/20)
+- X-Men: First Class (09/17/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
