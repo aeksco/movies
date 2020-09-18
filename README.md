@@ -22,6 +22,7 @@
 - Jurassic Park (09/16/20)
 - X-Men: First Class (09/17/20)
 - That Thing You Do! (09/17/20)
+- Midway (09/18/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
