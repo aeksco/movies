@@ -25,6 +25,7 @@
 - Midway (09/18/20)
 - War Dogs (09/18/20)
 - Requiem for a Dream (09/18/20)
+- Fight Club (09/18/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
