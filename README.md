@@ -29,6 +29,7 @@
 - Goodfellas (09/19/20)
 - My Blue Heaven (09/20/20)
 - The Devil's Advocate (09/21/20)
+- Million Dollar Baby (09/21/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
