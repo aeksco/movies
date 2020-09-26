@@ -32,6 +32,8 @@
 - Million Dollar Baby (09/21/20)
 - Glory (09/22/20)
 - The Town (09/23/20)
+- The Lord of the Rings: The Fellowship of the Ring (09/25/20)
+- The Lord of the Rings: The Two Towers (09/26/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
