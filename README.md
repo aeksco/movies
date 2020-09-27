@@ -34,6 +34,9 @@
 - The Town (09/23/20)
 - The Lord of the Rings: The Fellowship of the Ring (09/25/20)
 - The Lord of the Rings: The Two Towers (09/26/20)
+- The Lord of the Rings: The Return of the King (09/26/20)
+- The Lovely Bones (09/26/20)
+- The Pentagon Wars (09/26/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
