@@ -37,6 +37,8 @@
 - The Lord of the Rings: The Return of the King (09/26/20)
 - The Lovely Bones (09/26/20)
 - The Pentagon Wars (09/26/20)
+- Dave (09/27/20)
+- U-571 (09/28/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
