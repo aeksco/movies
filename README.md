@@ -39,6 +39,8 @@
 - The Pentagon Wars (09/26/20)
 - Dave (09/27/20)
 - U-571 (09/28/20)
+- Howl's Moving Castle (09/29/20)
+- Batman (09/29/20)
 
 ### August 2020
 - Harry Potter and the Sorcerer's Stone (08/22/20)
