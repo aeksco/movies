@@ -4,6 +4,10 @@
 
 ---
 
+### October 2020
+- Star Wars: The Rise of Skywalker (10/01/20)
+- Airplane! (10/01/20)
+
 ### September 2020
 - Ray (09/01/20)
 - All the Way (09/01/20)
