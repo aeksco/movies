@@ -469,3 +469,11 @@ Sam's Recs
 - Climax
 - The Beguiled
 - Lost In Translation
+
+October Movies
+- Rosemary's Baby
+- They Live
+- Friday the 13th
+- Halloween
+- Casablanca
+- Hitchcock Movies?
