@@ -477,3 +477,10 @@ October Movies
 - Halloween
 - Casablanca
 - Hitchcock Movies?
+- Logan's Run
+- 2001: A Space Odyssey
+- John Carpenter movies?
+- John Waters
+- Blue Velvet
+- Eraserhead
+- 
