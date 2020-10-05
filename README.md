@@ -9,6 +9,7 @@
 - Airplane! (10/01/20)
 - Pride and Prejudice (10/03/20)
 - The Social Dilemma (10/04/20)
+- Star Wars: Ep. I - The Phantom Menace (10/4/19)
 
 ### September 2020
 - Ray (09/01/20)
