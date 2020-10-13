@@ -12,6 +12,7 @@
 - Star Wars: Ep. I - The Phantom Menace (10/4/20)
 - Fargo (10/9/20)
 - Cats (10/12/20)
+- Teen Witch (10/12/20)
 
 ### September 2020
 - Ray (09/01/20)
