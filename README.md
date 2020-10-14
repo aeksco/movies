@@ -13,6 +13,9 @@
 - Fargo (10/9/20)
 - Cats (10/12/20)
 - Teen Witch (10/12/20)
+- Dirty Dancing (10/13/20)
+- The Butterfly Effect (10/13/20)
+- Unbreakable (10/13/20)
 
 ### September 2020
 - Ray (09/01/20)
