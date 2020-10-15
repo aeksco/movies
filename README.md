@@ -16,6 +16,9 @@
 - Dirty Dancing (10/13/20)
 - The Butterfly Effect (10/13/20)
 - Unbreakable (10/13/20)
+- JFK (10/14/20)
+- Star Wars: Ep. II - Attack of the Clones (10/14/20)
+- Star Wars: Ep. III - Revenge of the Sith (10/15/20)
 
 ### September 2020
 - Ray (09/01/20)
