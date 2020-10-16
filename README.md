@@ -19,6 +19,8 @@
 - JFK (10/14/20)
 - Star Wars: Ep. II - Attack of the Clones (10/14/20)
 - Star Wars: Ep. III - Revenge of the Sith (10/15/20)
+- A Beautiful Mind (10/15/20)
+- The Good Shepherd (10/15/20)
 
 ### September 2020
 - Ray (09/01/20)
