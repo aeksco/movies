@@ -24,6 +24,8 @@
 - The Terminator (10/15/20)
 - Religulous (10/16/20)
 - The Rock (10/16/20)
+- Moneyball (10/16/20)
+- Harold and Kumar go to White Casele (10/17/20)
 
 ### September 2020
 - Ray (09/01/20)
