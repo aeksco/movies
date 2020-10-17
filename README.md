@@ -23,6 +23,7 @@
 - The Good Shepherd (10/15/20)
 - The Terminator (10/15/20)
 - Religulous (10/16/20)
+- The Rock (10/16/20)
 
 ### September 2020
 - Ray (09/01/20)
