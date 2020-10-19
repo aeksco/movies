@@ -32,6 +32,7 @@
 - Mad Max (10/18/20)
 - The Royal Tenenbaums (10/18/20)
 - Knives Out (10/19/20)
+- The Social Network (10/19/20)
 
 ### September 2020
 - Ray (09/01/20)
