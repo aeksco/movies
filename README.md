@@ -28,6 +28,7 @@
 - Harold and Kumar go to White Casele (10/17/20)
 - Along Came a Spider (10/17/20)
 - The Nightmare Before Christmas (10/17/20)
+- The Irishman (10/17/20)
 
 ### September 2020
 - Ray (09/01/20)
