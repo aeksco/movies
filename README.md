@@ -36,6 +36,7 @@
 - The Mothman Prophecies (10/20/20)
 - The Da Vinci Code (10/20/20)
 - Borat: Cultural Learnings of America for Make Benefit Glorious Nation of Kazakhstan (10/20/20)
+- Hotel Rwanda (10/20/20)
 
 ### September 2020
 - Ray (09/01/20)
