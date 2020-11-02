@@ -40,6 +40,7 @@
 - Borat Subsequent Moviefilm (10/23/20)
 - The Irishman (10/25/20)
 - Midsommar (10/25/20)
+- Fargo (10/30/20)
 
 ### September 2020
 - Ray (09/01/20)
