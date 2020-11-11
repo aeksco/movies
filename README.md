@@ -8,6 +8,9 @@
 - The Irishman (11/05/20)
 - The Irishman (11/06/20)
 - Harry Potter and the Order of the Phoenix (11/08/20)
+- The Hobbit: An Unexpected Journey (11/10/20)
+- The Hobbit: The Desolation of Smaug (11/10/20)
+- The Hobbit: The Battle of the Five Armies (11/11/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
