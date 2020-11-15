@@ -11,6 +11,7 @@
 - The Hobbit: An Unexpected Journey (11/10/20)
 - The Hobbit: The Desolation of Smaug (11/10/20)
 - The Hobbit: The Battle of the Five Armies (11/11/20)
+- Harry Potter and the Half-Blooded Prince (11/14/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
