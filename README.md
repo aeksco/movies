@@ -125,6 +125,15 @@
 
 - Heat (06/??/20)
 - Election (06/??/20)
+- Cold Mountain (06/12/20)
+- Die Hard (06/12/20)
+- Atlantis (06/13/20)
+- Glengarry Glen Ross (06/14/20)
+- Jaws (06/14/20)
+- The Cable Guy (06/15/20)
+- Clue (06/15/20)
+- Air Force One (06/15/20)
+- Troop Zero (06/15/20)
 
 ### May 2020
 
