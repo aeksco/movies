@@ -14,6 +14,7 @@
 - Harry Potter and the Half-Blooded Prince (11/14/20)
 - Harry Potter and the Deathly Hallows Pt. 1 (11/14/20)
 - 12 Years a Slave (11/16/20)
+- Dead Presidents (11/16/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
