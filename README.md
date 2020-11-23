@@ -18,6 +18,7 @@
 - Kiss The Girls (11/19/20)
 - Home Alone (11/20/20)
 - Harry Potter and the Deathly Hallows Pt. 1 (11/21/20)
+- Deadpool (11/21/20)
 - Totally Under Control (11/22/20)
 - Big Daddy (11/22/20)
 
