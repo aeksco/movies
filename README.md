@@ -21,6 +21,7 @@
 - Deadpool (11/21/20)
 - Totally Under Control (11/22/20)
 - Big Daddy (11/22/20)
+- The Secret Life of Walter Mitty (11/23/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
