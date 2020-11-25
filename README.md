@@ -24,6 +24,7 @@
 - The Secret Life of Walter Mitty (11/23/20)
 - The Bourne Identity (11/23/20)
 - The Net (11/24/20)
+- Crimson Tide (11/24/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
