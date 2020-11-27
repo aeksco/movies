@@ -25,7 +25,9 @@
 - The Bourne Identity (11/23/20)
 - The Net (11/24/20)
 - Crimson Tide (11/24/20)
-- Snowden (11/24/20)
+- Snowden (11/25/20)
+- Pineapple Express (11/26/20)
+- The Disaster Artist (11/26/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
