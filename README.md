@@ -28,6 +28,9 @@
 - Snowden (11/25/20)
 - Pineapple Express (11/26/20)
 - The Disaster Artist (11/26/20)
+- Double Jeopardy (11/27/20)
+- The Birds (11/28/20)
+- The Mystery of D.B. Cooper (11/28/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
