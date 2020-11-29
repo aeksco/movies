@@ -31,6 +31,7 @@
 - Double Jeopardy (11/27/20)
 - The Birds (11/28/20)
 - The Mystery of D.B. Cooper (11/28/20)
+- Crazy, Not Insane (11/28/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
