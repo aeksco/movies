@@ -4,6 +4,9 @@
 
 ---
 
+### December 2020
+- Psycho (12/01/20)
+
 ### November 2020
 - The Irishman (11/05/20)
 - The Irishman (11/06/20)
@@ -32,7 +35,7 @@
 - The Birds (11/28/20)
 - The Mystery of D.B. Cooper (11/28/20)
 - Crazy, Not Insane (11/28/20)
-- Read Window (11/29/20)
+- Rear Window (11/29/20)
 
 ### October 2020
 - Star Wars: The Rise of Skywalker (10/01/20)
