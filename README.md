@@ -546,6 +546,8 @@ Sam's Recs
 - Climax
 - The Beguiled
 - Lost In Translation
+- The Brink (Hulu)
+- American Dharma
 
 October Movies
 - Rosemary's Baby
