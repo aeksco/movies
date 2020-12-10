@@ -8,6 +8,7 @@
 - Psycho (12/01/20)
 - Billy Madison (12/02/20)
 - Paterno (12/02/20)
+- The Shawshank Redemption (12/10/20)
 
 ### November 2020
 - The Irishman (11/05/20)
