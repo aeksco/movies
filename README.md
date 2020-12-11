@@ -9,6 +9,7 @@
 - Billy Madison (12/02/20)
 - Paterno (12/02/20)
 - The Shawshank Redemption (12/10/20)
+- Happy Gilmore (12/10/20)
 
 ### November 2020
 - The Irishman (11/05/20)
