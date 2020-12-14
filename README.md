@@ -14,6 +14,7 @@
 - Cast Away (12/11/20)
 - J. Edgar (12/12/20)
 - Gladiator (12/12/20)
+- Citizen Kane (12/13/20)
 
 ### November 2020
 - The Irishman (11/05/20)
