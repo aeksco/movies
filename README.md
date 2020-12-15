@@ -16,6 +16,7 @@
 - Gladiator (12/12/20)
 - Citizen Kane (12/13/20)
 - The Departed (12/13/20)
+- The Sum of All Fears (12/14/20)
 
 ### November 2020
 - The Irishman (11/05/20)
