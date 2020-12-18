@@ -18,6 +18,7 @@
 - The Departed (12/13/20)
 - The Sum of All Fears (12/14/20)
 - The Irishman (12/18/20)
+- The Departed (12/18/20)
 
 ### November 2020
 - The Irishman (11/05/20)
