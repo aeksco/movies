@@ -20,6 +20,7 @@
 - The Irishman (12/18/20)
 - The Departed (12/18/20)
 - Questioning Darwin (12/20/20)
+- Capricorn One (12/20/20)
 
 ### November 2020
 - The Irishman (11/05/20)
