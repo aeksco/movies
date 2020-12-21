@@ -22,6 +22,7 @@
 - Questioning Darwin (12/20/20)
 - Capricorn One (12/20/20)
 - Eyes Wide Shut (12/20/20)
+- Antwone Fisher (12/20/20)
 
 ### November 2020
 - The Irishman (11/05/20)
