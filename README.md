@@ -505,6 +505,7 @@
 - Casino (K)
 - American Hustle (K)
 - Tootsie
+- Hannah Arendt
 
 Kyle's Recs
 
@@ -577,4 +578,4 @@ October Movies
 - John Waters
 - Blue Velvet
 - Eraserhead
-- 
+ 
