@@ -23,6 +23,7 @@
 - Capricorn One (12/20/20)
 - Eyes Wide Shut (12/20/20)
 - Antwone Fisher (12/20/20)
+- Gone Girl (12/21/20)
 
 ### November 2020
 - The Irishman (11/05/20)
