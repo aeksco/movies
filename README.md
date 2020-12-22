@@ -25,6 +25,7 @@
 - Antwone Fisher (12/20/20)
 - Gone Girl (12/21/20)
 - Bombshell (12/21/20)
+- Lord of War (12/22/20)
 
 ### November 2020
 - The Irishman (11/05/20)
