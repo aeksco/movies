@@ -27,6 +27,7 @@
 - Bombshell (12/21/20)
 - Lord of War (12/22/20)
 - The Hurt Locker (12/23/20)
+- 	The Midnight Sky (12/23/20)
 - The Butlet (12/31/20)
 
 ### November 2020
