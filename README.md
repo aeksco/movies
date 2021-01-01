@@ -3,6 +3,10 @@
 :movie_camera: An on-going list of movies I've been watching
 
 ---
+### January 2021
+- Marie Antoinette (01/01/21)
+
+---
 
 ### December 2020
 - Psycho (12/01/20)
