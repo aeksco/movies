@@ -29,6 +29,7 @@
 - The Hurt Locker (12/23/20)
 - The Midnight Sky (12/23/20)
 - The Butler (12/31/20)
+- The Founder (12/31/20)
 
 ### November 2020
 - The Irishman (11/05/20)
