@@ -28,6 +28,7 @@
 - Lord of War (12/22/20)
 - The Hurt Locker (12/23/20)
 - The Midnight Sky (12/23/20)
+- Soul (12/30/20)
 - The Butler (12/31/20)
 - The Founder (12/31/20)
 
