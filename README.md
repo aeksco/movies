@@ -7,6 +7,8 @@
 - Marie Antoinette (01/01/21)
 - Shrek (01/01/21)
 - The Road to El Dorado (01/01/21)
+- Star Wars: The Empire Strikes Back (01/01/21)
+- Star Wars: Return of the Jedi (01/01/21)
 
 ---
 
