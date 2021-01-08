@@ -11,6 +11,8 @@
 - Star Wars: Return of the Jedi (01/01/21)
 - There Will Be Blood (01/02/21)
 - Searching for Bobby Fischer (01/03/21)
+- The American President (01/06/21)
+- The Patriot (01/07/21)
 
 ---
 
