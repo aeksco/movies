@@ -14,6 +14,8 @@
 - The American President (01/06/21)
 - The Patriot (01/07/21)
 - The Help (01/08/21)
+- The Polar Express (01/10/21)
+- Lady Bird (01/10/21)
 
 ---
 
