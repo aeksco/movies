@@ -16,6 +16,10 @@
 - The Help (01/08/21)
 - The Polar Express (01/10/21)
 - Lady Bird (01/10/21)
+- The Irishman (01/13/21)
+- Catch Me If You Can (01/17/21)
+- The Iron Lady (01/17/21)
+- Catch Me If You Can (01/17/21)
 
 ---
 
