@@ -21,6 +21,8 @@
 - The Iron Lady (01/17/21)
 - Catch Me If You Can (01/17/21)
 - Snowden (01/19/21)
+- GoodFellas (01/21/21)
+- The Departed (01/22/21)
 
 ---
 
