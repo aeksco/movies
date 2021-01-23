@@ -23,6 +23,7 @@
 - Snowden (01/19/21)
 - GoodFellas (01/21/21)
 - The Departed (01/22/21)
+- The Hateful Eight (01/22/21)
 
 ---
 
