@@ -24,6 +24,10 @@
 - GoodFellas (01/21/21)
 - The Departed (01/22/21)
 - The Hateful Eight (01/22/21)
+- Muriel's Wedding (01/23/21)
+- Hook (01/23/21)
+- The Irishman (01/23/21)
+- Once Upon a Time In Hollywood (01/23/21)
 
 ---
 
