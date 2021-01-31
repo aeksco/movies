@@ -29,6 +29,8 @@
 - The Irishman (01/23/21)
 - Once Upon a Time In Hollywood (01/23/21)
 - The Godfather (01/24/21)
+- Mad Max: Fury Road (01/25/21)
+- The Dark Knight (01/30/21)
 
 ---
 
