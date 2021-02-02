@@ -3,6 +3,10 @@
 :movie_camera: An on-going list of movies I've been watching
 
 ---
+
+### February 2021
+- Ready Player One (02/02/21)
+
 ### January 2021
 - Marie Antoinette (01/01/21)
 - Shrek (01/01/21)
