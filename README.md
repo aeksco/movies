@@ -7,6 +7,7 @@
 ### February 2021
 - Ready Player One (02/02/21)
 - Gone Girl (02/03/21)
+- National Treasure (02/06/21)
 
 ### January 2021
 - Marie Antoinette (01/01/21)
