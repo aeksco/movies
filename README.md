@@ -8,6 +8,7 @@
 - Ready Player One (02/02/21)
 - Gone Girl (02/03/21)
 - National Treasure (02/06/21)
+- The Eichmann Show (02/13/21)
 - Django Unchained (02/14/21)
 - Money Talks (02/14/21)
 
