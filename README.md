@@ -11,6 +11,7 @@
 - The Eichmann Show (02/13/21)
 - Django Unchained (02/14/21)
 - Money Talks (02/14/21)
+- The Mothman Prophecies (10/20/20)
 
 ### January 2021
 - Marie Antoinette (01/01/21)
