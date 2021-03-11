@@ -4,6 +4,10 @@
 
 ---
 
+### March 2021
+- Pirates of the Caribbean: The Curse of the Black Pearl (03/02/21)
+- The Irishman (03/05/21)
+
 ### February 2021
 - Ready Player One (02/02/21)
 - Gone Girl (02/03/21)
@@ -13,6 +17,7 @@
 - Money Talks (02/14/21)
 - The Mothman Prophecies (02/14/21)
 - Spotlight (02/26/21)
+- National Treasure (02/28/21)
 
 ### January 2021
 - Marie Antoinette (01/01/21)
