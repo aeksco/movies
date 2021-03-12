@@ -7,6 +7,7 @@
 ### March 2021
 - Pirates of the Caribbean: The Curse of the Black Pearl (03/02/21)
 - The Irishman (03/05/21)
+- Bowfinger (03/10/21)
 
 ### February 2021
 - Ready Player One (02/02/21)
