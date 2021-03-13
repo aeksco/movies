@@ -10,6 +10,7 @@
 - Bowfinger (03/11/21)
 - The Mummy (03/11/21)
 - Prometheus (03/12/21)
+- Pulp Fiction (03/12/21)
 
 ### February 2021
 - Ready Player One (02/02/21)
