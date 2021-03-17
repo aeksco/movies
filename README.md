@@ -16,6 +16,7 @@
 - High Fidelity (03/15/21)
 - Mystic River (03/15/21)
 - Tolkein (03/16/21)
+- The English Patient (03/16/21)
 
 ### February 2021
 - Ready Player One (02/02/21)
