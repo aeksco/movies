@@ -93,6 +93,7 @@
 ### November 2020
 - The Irishman (11/05/20)
 - The Irishman (11/06/20)
+- Harry Potter and the Goblet of Fire (11/08/20)
 - Harry Potter and the Order of the Phoenix (11/08/20)
 - The Hobbit: An Unexpected Journey (11/10/20)
 - The Hobbit: The Desolation of Smaug (11/10/20)
