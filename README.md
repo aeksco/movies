@@ -22,6 +22,7 @@
 - El Camino (03/18/21)
 - Allen v. Farrow (03/22/21)
 - Behind the Candelabra (03/23/21)
+- Seven (03/25/21)
 
 ### February 2021
 - Ready Player One (02/02/21)
