@@ -4,6 +4,11 @@
 
 ---
 
+### April 2021
+- The Devil's Advocate (04/02/21)
+- Training Day (04/03/21)
+- Ted (04/07/21)
+
 ### March 2021
 - Pirates of the Caribbean: The Curse of the Black Pearl (03/02/21)
 - The Irishman (03/05/21)
