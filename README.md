@@ -8,6 +8,9 @@
 - The Devil's Advocate (04/02/21)
 - Training Day (04/03/21)
 - Ted (04/07/21)
+- Muriel's Wedding (04/09/21)
+- Muriel's Wedding (04/17/21)
+- The Aviator (04/19/21)
 
 ### March 2021
 - Pirates of the Caribbean: The Curse of the Black Pearl (03/02/21)
