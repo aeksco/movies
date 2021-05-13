@@ -7,6 +7,7 @@
 ### May 2021
 - Argo (05/08/21)
 - The Irishman (05/11/21)
+- Dumb and Dumber (05/12/21)
 
 ### April 2021
 - The Devil's Advocate (04/02/21)
