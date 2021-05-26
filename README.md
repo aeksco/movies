@@ -8,6 +8,9 @@
 - Argo (05/08/21)
 - The Irishman (05/11/21)
 - Dumb and Dumber (05/12/21)
+- In and Out (05/25/21)
+- The Whole Nine Yards (05/25/21)
+- Path to War (05/26/21)
 
 ### April 2021
 - The Devil's Advocate (04/02/21)
