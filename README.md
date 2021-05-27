@@ -11,6 +11,8 @@
 - In and Out (05/25/21)
 - The Whole Nine Yards (05/25/21)
 - Path to War (05/26/21)
+- Serving Sarah (05/27/21)
+- X-Men: First Class (05/27/21)
 
 ### April 2021
 - The Devil's Advocate (04/02/21)
