@@ -13,6 +13,10 @@
 - Path to War (05/26/21)
 - Serving Sarah (05/27/21)
 - X-Men: First Class (05/27/21)
+- Black Hawk Down (05/27/21)
+- The Mask (05/29/21)
+- The Truman Show (05/29/21)
+- Men on Honor (05/29/21)
 
 ### April 2021
 - The Devil's Advocate (04/02/21)
