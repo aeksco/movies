@@ -18,6 +18,7 @@
 - The Truman Show (05/29/21)
 - Men of Honor (05/29/21)
 - Once Upon a Time In Hollywood (05/29/21)
+- Bad Company (05/30/21)
 
 ### April 2021
 - The Devil's Advocate (04/02/21)
