@@ -4,6 +4,9 @@
 
 ---
 
+### June 2021
+- Charlie Wilson's War (06/02/21)
+
 ### May 2021
 - Argo (05/08/21)
 - The Irishman (05/11/21)
