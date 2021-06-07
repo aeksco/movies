@@ -8,7 +8,9 @@
 - Charlie Wilson's War (06/02/21)
 - Robin Hood: Prince of Thieves (06/03/21)
 - JFK (06/03/21)
+- Mare of Easttown (06/04/21)
 - Thirteen Days (06/05/2021)
+- Bo Burnham - Inside (06/06/21)
 
 ### May 2021
 - Argo (05/08/21)
