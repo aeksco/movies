@@ -11,6 +11,8 @@
 - Mare of Easttown (06/04/21)
 - Thirteen Days (06/05/2021)
 - Bo Burnham - Inside (06/06/21)
+- Eye for an Eye (06/07/21)
+- A League of Their Own (06/07/21) 
 
 ### May 2021
 - Argo (05/08/21)
