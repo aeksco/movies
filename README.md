@@ -12,7 +12,9 @@
 - Thirteen Days (06/05/2021)
 - Bo Burnham - Inside (06/06/21)
 - Eye for an Eye (06/07/21)
-- A League of Their Own (06/07/21) 
+- A League of Their Own (06/07/21)
+- The Lord of the Rings: The Fellowship of the Ring Extended Edition (06/08/20)
+- Harry Potter and the Sorcerer's Stone (06/19/20)
 
 ### May 2021
 - Argo (05/08/21)
