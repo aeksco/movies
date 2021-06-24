@@ -10,6 +10,7 @@
 - JFK (06/03/21)
 - Mare of Easttown (06/04/21)
 - Thirteen Days (06/05/2021)
+- Saving Silverman (06/05/2021)
 - Bo Burnham - Inside (06/06/21)
 - Eye for an Eye (06/07/21)
 - A League of Their Own (06/07/21)
