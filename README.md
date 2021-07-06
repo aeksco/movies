@@ -4,7 +4,12 @@
 
 ---
 
+### July 2021
+
+- Election (07/03/21)
+
 ### June 2021
+
 - Charlie Wilson's War (06/02/21)
 - Robin Hood: Prince of Thieves (06/03/21)
 - JFK (06/03/21)
