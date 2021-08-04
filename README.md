@@ -4,8 +4,17 @@
 
 ---
 
+### August 2021
+- Wardogs (08/03/21)
+- JFK (08/03/21)
+- The Hateful Eight (08/01/21)
+
 ### July 2021
 
+- JFK (07/31/21)
+- Flight (07/30/21)
+- Once Upon A Time In Hollywood (07/29/21)
+- Vice (07/28/21)
 - Election (07/03/21)
 
 ### June 2021
