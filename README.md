@@ -8,6 +8,7 @@
 - Wardogs (08/03/21)
 - JFK (08/03/21)
 - The Hateful Eight (08/01/21)
+- Arrival (08/13/21)
 
 ### July 2021
 
