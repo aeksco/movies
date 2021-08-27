@@ -9,6 +9,10 @@
 - JFK (08/03/21)
 - The Hateful Eight (08/01/21)
 - Arrival (08/13/21)
+- The Irishman (08/25/21)
+- Star Trek (08/26/21)
+- O Brother, Where Art Thou? (08/26/21)
+- Amadeus (08/27/21)
 
 ### July 2021
 
