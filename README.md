@@ -4,6 +4,13 @@
 
 ---
 
+### September 2021
+- Max Max: Fury Road (09/09/21)
+- The Matrix (09/09/21)
+- The Matrix Reloaded (09/09/21)
+- The Matrix Revolutions (09/10/21)
+- The Animatrix (09/10/21)
+
 ### August 2021
 - Wardogs (08/03/21)
 - JFK (08/03/21)
@@ -550,15 +557,12 @@
 
 ### TO WATCH
 
-- The Town (C)
 - Tombstone (C) (K)
-- Mystic River (C) (K)
 - True Romance (C) (K)
 - Friday (C)
 - Dazed and Confused (C) (K)
 - Apocalypse Now (C) (K)
 - Hearts of Darkness (C) (K)
-- Mission: Impossible
 - Mission: Impossible 3+ (K)
 - Top Gun
 - Edward Scissorhands (K)
@@ -571,7 +575,6 @@
 - Metropolis (K)
 - Do The Right Thing (K)
 - Dead Poet's Society (K)
-- All The President's Men
 - Fast Times at Ridgemont High (K)
 - Munich (K)
 - Lincoln
@@ -626,8 +629,6 @@
 - The Wolf's Call
 - Braveheart (K)
 - The Last of the Mohicans (K)
-- There Will Be Blood
-- Booksmart
 - Birdman (K)
 - The Revenant
 - First Man
@@ -638,7 +639,6 @@
 
 Kyle's Recs
 
-- Bone Tomahawk
 - Brawl in cell block 99
 - Turbokid
 - Dead Man's Shoes
@@ -652,7 +652,6 @@ Kyle's Recs
 - Hardcore Henry
 - Crank
 - Crank 2
-- The Patriot
 - The Machinist
 - The King of Comedy
 - Seven Psychopaths
@@ -702,7 +701,6 @@ October Movies
 - Casablanca
 - Hitchcock Movies?
 - Logan's Run
-- 2001: A Space Odyssey
 - John Carpenter movies?
 - John Waters
 - Blue Velvet
