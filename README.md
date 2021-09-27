@@ -14,6 +14,8 @@
 - Star Wars: Ep. I - The Phantom Menace (09/12/20)
 - Muriel's Wedding (09/18/21)
 - Office Space (09/18/21)
+- Howl's Moving Castle (09/23/21)
+- Vice (09/23/21)
 
 ### August 2021
 - Wardogs (08/03/21)
