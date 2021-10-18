@@ -5,6 +5,12 @@
 ---
 
 ### September 2021
+- Contact (10/10/21)
+- Star Wars: Rogue One (10/17/21)
+- Star Wars: Solo (10/17/21)
+- Doubt (10/17/21)
+
+### September 2021
 - Max Max: Fury Road (09/09/21)
 - The Matrix (09/09/21)
 - The Matrix Reloaded (09/09/21)
