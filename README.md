@@ -4,11 +4,16 @@
 
 ---
 
-### September 2021
+### October 2021
 - Contact (10/10/21)
 - Star Wars: Rogue One (10/17/21)
 - Star Wars: Solo (10/17/21)
 - Doubt (10/17/21)
+- Star Wars: A New Hope (10/19/21)
+- Star Wars: The Empire Strikes Back (10/19/21)
+- Star Wars: Return Of The Jedi (10/19/21)
+- There Will Be Blood (10/20/21)
+- Titanic (10/20/21)
 
 ### September 2021
 - Max Max: Fury Road (09/09/21)
