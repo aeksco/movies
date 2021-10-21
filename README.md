@@ -6,6 +6,7 @@
 
 ### October 2021
 - Contact (10/10/21)
+- Tommy Boy (10/12/21) 
 - Star Wars: Rogue One (10/17/21)
 - Star Wars: Solo (10/17/21)
 - Doubt (10/17/21)
@@ -14,6 +15,7 @@
 - Star Wars: Return Of The Jedi (10/19/21)
 - There Will Be Blood (10/20/21)
 - Titanic (10/20/21)
+- Lincoln Lawyer (10/21/21)
 
 ### September 2021
 - Max Max: Fury Road (09/09/21)
