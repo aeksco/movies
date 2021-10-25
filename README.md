@@ -16,6 +16,7 @@
 - There Will Be Blood (10/20/21)
 - Titanic (10/20/21)
 - Lincoln Lawyer (10/21/21)
+- Worth (10/22/21)
 
 ### September 2021
 - Max Max: Fury Road (09/09/21)
