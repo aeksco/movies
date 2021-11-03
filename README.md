@@ -3,6 +3,8 @@
 :movie_camera: An on-going list of movies I've been watching
 
 ---
+### November 2021
+- The Irishman (11/02/21)
 
 ### October 2021
 - Contact (10/10/21)
@@ -17,6 +19,7 @@
 - Titanic (10/20/21)
 - Lincoln Lawyer (10/21/21)
 - Worth (10/22/21)
+- Goodfellas (10/29/21)
 
 ### September 2021
 - Max Max: Fury Road (09/09/21)
