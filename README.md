@@ -3,14 +3,18 @@
 :movie_camera: An on-going list of movies I've been watching
 
 ---
+
 ### November 2021
+
 - The Irishman (11/02/21)
 - Four Hours At The Capitol (11/08/21)
 - I, Tonya (11/10/21)
+- Cold Mountain (11/11/21)
 
 ### October 2021
+
 - Contact (10/10/21)
-- Tommy Boy (10/12/21) 
+- Tommy Boy (10/12/21)
 - Star Wars: Rogue One (10/17/21)
 - Star Wars: Solo (10/17/21)
 - Doubt (10/17/21)
@@ -24,6 +28,7 @@
 - Goodfellas (10/29/21)
 
 ### September 2021
+
 - Max Max: Fury Road (09/09/21)
 - The Matrix (09/09/21)
 - The Matrix Reloaded (09/09/21)
@@ -37,6 +42,7 @@
 - Vice (09/23/21)
 
 ### August 2021
+
 - Wardogs (08/03/21)
 - JFK (08/03/21)
 - The Hateful Eight (08/01/21)
@@ -69,6 +75,7 @@
 - Harry Potter and the Sorcerer's Stone (06/19/20)
 
 ### May 2021
+
 - Argo (05/08/21)
 - The Irishman (05/11/21)
 - Dumb and Dumber (05/12/21)
@@ -87,6 +94,7 @@
 - Game Change (05/31/21)
 
 ### April 2021
+
 - The Devil's Advocate (04/02/21)
 - Training Day (04/03/21)
 - Ted (04/07/21)
@@ -95,6 +103,7 @@
 - The Aviator (04/19/21)
 
 ### March 2021
+
 - Pirates of the Caribbean: The Curse of the Black Pearl (03/02/21)
 - The Irishman (03/05/21)
 - Bowfinger (03/11/21)
@@ -115,6 +124,7 @@
 - Seven (03/25/21)
 
 ### February 2021
+
 - Ready Player One (02/02/21)
 - Gone Girl (02/03/21)
 - National Treasure (02/06/21)
@@ -126,6 +136,7 @@
 - National Treasure (02/28/21)
 
 ### January 2021
+
 - Marie Antoinette (01/01/21)
 - Shrek (01/01/21)
 - The Road to El Dorado (01/01/21)
@@ -157,6 +168,7 @@
 ---
 
 ### December 2020
+
 - Psycho (12/01/20)
 - Billy Madison (12/02/20)
 - Paterno (12/02/20)
@@ -185,6 +197,7 @@
 - The Founder (12/31/20)
 
 ### November 2020
+
 - The Irishman (11/05/20)
 - The Irishman (11/06/20)
 - Harry Potter and the Goblet of Fire (11/08/20)
@@ -216,6 +229,7 @@
 - Rear Window (11/29/20)
 
 ### October 2020
+
 - Star Wars: The Rise of Skywalker (10/01/20)
 - Airplane! (10/01/20)
 - Pride and Prejudice (10/03/20)
@@ -254,6 +268,7 @@
 - Fargo (10/30/20)
 
 ### September 2020
+
 - Ray (09/01/20)
 - All the Way (09/01/20)
 - All the President's Men (09/01/20)
@@ -292,6 +307,7 @@
 - Batman (09/29/20)
 
 ### August 2020
+
 - Harry Potter and the Sorcerer's Stone (08/22/20)
 - Harry Potter and the Chamber of Secrets (08/23/20)
 - Harry Potter and the Prisoner of Azkaban (08/24/20)
@@ -719,6 +735,7 @@ Sam's Recs
 - American Dharma
 
 October Movies
+
 - Rosemary's Baby
 - They Live
 - Friday the 13th
@@ -730,4 +747,3 @@ October Movies
 - John Waters
 - Blue Velvet
 - Eraserhead
- 
