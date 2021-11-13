@@ -11,6 +11,8 @@
 - I, Tonya (11/10/21)
 - San Andreas (11/11/21)
 - Cold Mountain (11/11/21)
+- Oblivion (11/12/21)
+- Eyes Wide Shut (11/13/21)- 
 
 ### October 2021
 
