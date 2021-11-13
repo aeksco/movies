@@ -9,6 +9,7 @@
 - The Irishman (11/02/21)
 - Four Hours At The Capitol (11/08/21)
 - I, Tonya (11/10/21)
+- San Andreas (11/11/21)
 - Cold Mountain (11/11/21)
 
 ### October 2021
