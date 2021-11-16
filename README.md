@@ -14,6 +14,7 @@
 - Oblivion (11/12/21)
 - Eyes Wide Shut (11/13/21)
 - The Day After Tomorrow (11/14/21)
+- Ready Player One (11/15/21)
 
 ### October 2021
 
