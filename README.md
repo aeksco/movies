@@ -12,7 +12,8 @@
 - San Andreas (11/11/21)
 - Cold Mountain (11/11/21)
 - Oblivion (11/12/21)
-- Eyes Wide Shut (11/13/21)- 
+- Eyes Wide Shut (11/13/21)
+- The Day After Tomorrow (11/14/21)
 
 ### October 2021
 
