@@ -16,6 +16,7 @@
 - The Day After Tomorrow (11/14/21)
 - Ready Player One (11/15/21)
 - The Forgotten (11/16/21)
+- Steve Jobs (11/17/21)
 
 ### October 2021
 
