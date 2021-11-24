@@ -17,6 +17,9 @@
 - Ready Player One (11/15/21)
 - The Forgotten (11/16/21)
 - Steve Jobs (11/17/21)
+- JFK Revisited (11/22/21)
+- Apollo 13 (11/22/21)
+- Pleasantville (11/22/21)
 
 ### October 2021
 
