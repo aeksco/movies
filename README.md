@@ -21,6 +21,7 @@
 - Apollo 13 (11/22/21)
 - Pleasantville (11/23/21)
 - The House of Yes (11/23/21)
+- Forrest Gump (11/23/21)
 
 ### October 2021
 
