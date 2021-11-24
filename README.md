@@ -19,7 +19,8 @@
 - Steve Jobs (11/17/21)
 - JFK Revisited (11/22/21)
 - Apollo 13 (11/22/21)
-- Pleasantville (11/22/21)
+- Pleasantville (11/23/21)
+- The House of Yes (11/23/21)
 
 ### October 2021
 
