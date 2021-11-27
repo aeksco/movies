@@ -22,6 +22,8 @@
 - Pleasantville (11/23/21)
 - The House of Yes (11/23/21)
 - Forrest Gump (11/23/21)
+- Labyrinth (11/26/21)
+- Elf (11/26/21)
 
 ### October 2021
 
