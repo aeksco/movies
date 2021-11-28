@@ -24,6 +24,8 @@
 - Forrest Gump (11/23/21)
 - Labyrinth (11/25/21)
 - Elf (11/26/21)
+- Jingle All The Way (11/27/21)
+- Deadpool (11/27/21)
 
 ### October 2021
 
