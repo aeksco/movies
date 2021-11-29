@@ -26,6 +26,7 @@
 - Elf (11/26/21)
 - Jingle All The Way (11/27/21)
 - Deadpool (11/27/21)
+- The Hunger Games - Catching Fire (11/27/21)
 
 ### October 2021
 
