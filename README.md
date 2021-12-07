@@ -4,6 +4,11 @@
 
 ---
 
+### December 2021
+- Pleasantville (12/04/21)
+- Wandavision (12/04/21)
+- American Psycho (12/06/21)
+
 ### November 2021
 
 - The Irishman (11/02/21)
