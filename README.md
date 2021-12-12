@@ -8,6 +8,8 @@
 - Pleasantville (12/04/21)
 - Wandavision (12/04/21)
 - American Psycho (12/06/21)
+- The Irishman (12/10/21)
+- Jumanji (12/10/21)
 
 ### November 2021
 
