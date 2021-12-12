@@ -8,6 +8,7 @@
 - Pleasantville (12/04/21)
 - Wandavision (12/04/21)
 - American Psycho (12/06/21)
+- Vice (12/09/21)
 - The Irishman (12/10/21)
 - Jumanji (12/10/21)
 
