@@ -11,6 +11,8 @@
 - Vice (12/09/21)
 - The Irishman (12/10/21)
 - Jumanji (12/10/21)
+- Doubt (12/25/20)
+- 2001: A Space Odyssey (12/26/20)
 
 ### November 2021
 
