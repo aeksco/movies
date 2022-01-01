@@ -11,8 +11,14 @@
 - Vice (12/09/21)
 - The Irishman (12/10/21)
 - Jumanji (12/10/21)
-- Doubt (12/25/20)
-- 2001: A Space Odyssey (12/26/20)
+- Doubt (12/25/21)
+- 2001: A Space Odyssey (12/26/21)
+- Eyes Wide Shut (12/26/21)
+- 2010: The Year We Make Contact (12/27/21)
+- Don't Look Up (12/27/21)
+- The Matrix Resurrections (12/27/21)
+- Don't Look Up (12/28/21)
+- Don't Look Up (12/31/21)
 
 ### November 2021
 
