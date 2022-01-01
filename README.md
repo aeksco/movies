@@ -4,6 +4,9 @@
 
 ---
 
+### January 2022
+- The Eyes of Tammy Faye (01/01/2022)
+
 ### December 2021
 - Pleasantville (12/04/21)
 - Wandavision (12/04/21)
