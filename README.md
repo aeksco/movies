@@ -8,6 +8,8 @@
 - The Eyes of Tammy Faye (01/01/22)
 - The Truman Show (01/01/22)
 - Don't Look Up (01/02/22)
+- Don't Look Up (01/26/22)
+- First Wives Club (01/29/22)
 
 ### December 2021
 - Pleasantville (12/04/21)
