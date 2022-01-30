@@ -8,7 +8,12 @@
 - The Eyes of Tammy Faye (01/01/22)
 - The Truman Show (01/01/22)
 - Don't Look Up (01/02/22)
+- Mad Men Season 01
+- Mad Men Season 02
+- Mad Men Season 03
+- Mad Men Season 04
 - Don't Look Up (01/26/22)
+- Mad Men Season 05
 - First Wives Club (01/29/22)
 
 ### December 2021
