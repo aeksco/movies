@@ -12,6 +12,7 @@
 - Mad Men Season 7
 - Silver Linings Playbook (02/12/22)
 - The Giver (02/12/22)
+- Superman Returns (02/12/21)
 
 ### January 2022
 - The Eyes of Tammy Faye (01/01/22)
