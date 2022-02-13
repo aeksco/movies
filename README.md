@@ -4,6 +4,14 @@
 
 ---
 
+### February 2022
+- Flightplan
+- Mad Men Season 6
+- The Patriot
+- Don't Look Up
+- Mad Men Season 7
+- Silver Linings Playbook (02/12/22)
+
 ### January 2022
 - The Eyes of Tammy Faye (01/01/22)
 - The Truman Show (01/01/22)
