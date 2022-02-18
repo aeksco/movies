@@ -15,6 +15,8 @@
 - Superman Returns (02/12/21)
 - Batman Begins (02/13/21)
 - One Night in Miami (02/14/21)
+- The Lord of the Rings: The Fellowship of the Ring Extended Edition (02/16/20)
+- The Lord of the Rings: The Two Towers Extended Edition (02/16/20)
 
 ### January 2022
 - The Eyes of Tammy Faye (01/01/22)
