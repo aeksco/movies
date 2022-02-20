@@ -806,3 +806,14 @@ October Movies
 - John Waters
 - Blue Velvet
 - Eraserhead
+
+Traumatic Reddit Recs
+https://www.reddit.com/r/AskReddit/comments/swfpcn/which_movie_is_genuinely_traumatic/
+- Threads
+- Johnny Got His Gun
+- When The Wind Blows
+- Watership Down
+- KIDS
+- Come and See
+- Trainspotting
+- Grave of the fireflies
