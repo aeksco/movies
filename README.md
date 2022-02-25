@@ -10,13 +10,18 @@
 - The Patriot
 - Don't Look Up
 - Mad Men Season 7
+- The Hobbit: An Unexpected Journey
+- The Hobbit: The Desolation of Smaug
+- The Hobbit: The Battle of the Five Armies
 - Silver Linings Playbook (02/12/22)
 - The Giver (02/12/22)
-- Superman Returns (02/12/21)
-- Batman Begins (02/13/21)
-- One Night in Miami (02/14/21)
-- The Lord of the Rings: The Fellowship of the Ring Extended Edition (02/16/20)
-- The Lord of the Rings: The Two Towers Extended Edition (02/16/20)
+- Superman Returns (02/12/22)
+- Batman Begins (02/13/22)
+- One Night in Miami (02/14/22)
+- The Lord of the Rings: The Fellowship of the Ring Extended Edition (02/16/22)
+- The Lord of the Rings: The Two Towers Extended Edition (02/16/22)
+- That Thing You Do! (02/24/22)
+- Moneyball (02/24/22)
 
 ### January 2022
 - The Eyes of Tammy Faye (01/01/22)
