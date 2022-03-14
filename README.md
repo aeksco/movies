@@ -11,6 +11,7 @@
 - Zoolander (03/08/22)
 - The Irishman (03/08/22)
 - Step Brothers (03/10/22)
+- West Side Story (2021) (03/13/22)
 
 ### February 2022
 - Flightplan
