@@ -12,6 +12,9 @@
 - The Irishman (03/08/22)
 - Step Brothers (03/10/22)
 - West Side Story (2021) (03/13/22)
+- The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (03/16/22)
+- The Lord of the Rings: The Two Towers (Theatrical Cut) (03/18/22)
+- The Lord of the Rings: The Return of the King (Theatrical Cut) (03/18/22)
 
 ### February 2022
 - Flightplan
