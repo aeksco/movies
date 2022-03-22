@@ -17,6 +17,7 @@
 - The Lord of the Rings: The Return of the King (Theatrical Cut) (03/18/22)
 - Catch Me If You Can (03/20/22)
 - The Royal Tenenbaums (03/20/22)
+- Edward Scissorhands (03/21/22)
 
 ### February 2022
 - Flightplan
