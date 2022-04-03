@@ -4,6 +4,11 @@
 
 ---
 
+### April 2022
+- The Social Network (04/01/22)
+- Deep Impact (04/02/22)
+- Jurassic Park (04/02/22)
+
 ### March 2022
 - The Tinder Swindler (03/05/22)
 - Downfall: The Case Against Boeing (03/06/22)
@@ -15,6 +20,7 @@
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (03/16/22)
 - The Lord of the Rings: The Two Towers (Theatrical Cut) (03/18/22)
 - The Lord of the Rings: The Return of the King (Theatrical Cut) (03/18/22)
+- Breaking Bad
 - Catch Me If You Can (03/20/22)
 - The Royal Tenenbaums (03/20/22)
 - Edward Scissorhands (03/21/22)
