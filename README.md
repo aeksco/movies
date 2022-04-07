@@ -11,6 +11,9 @@
 - Gravity (04/03/22)
 - Showtime (04/04/22)
 - King Kong (2005) (04/04/22)
+- Kick-Ass (04/05/22)
+- Batman (04/05/22)
+- Batman Returns (04/05/22)
 
 ### March 2022
 - The Tinder Swindler (03/05/22)
