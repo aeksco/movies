@@ -16,6 +16,7 @@
 - Batman Returns (04/05/22)
 - Adventureland (04/19/22)
 - The Hangover (04/20/22)
+- Amadeus (04/22/22)
 
 ### March 2022
 - The Tinder Swindler (03/05/22)
