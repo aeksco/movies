@@ -7,6 +7,10 @@
 ### May 2022
 - The Mummy (1999) (05/02/22)
 - Spiderman (05/02/22)
+- The Aviator (05/03/22)
+- Reservoir Dogs (05/04/22)
+- The Departed (05/04/22)
+- Daredevil (05/06/22)
 
 ### April 2022
 - The Social Network (04/01/22)
