@@ -11,6 +11,7 @@
 - Reservoir Dogs (05/04/22)
 - The Departed (05/04/22)
 - Daredevil (05/06/22)
+- Terminator 2 (05/06/22)
 
 ### April 2022
 - The Social Network (04/01/22)
