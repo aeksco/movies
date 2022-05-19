@@ -13,6 +13,8 @@
 - Daredevil (05/06/22)
 - Terminator 2 (05/06/22)
 - Amadeus (05/07/22)
+- Star Wars: A New Hope (4K77) (05/17/22)
+- What Women Want (05/19/22)
 
 ### April 2022
 - The Social Network (04/01/22)
