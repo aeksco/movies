@@ -18,6 +18,8 @@
 - Princess Mononoke (05/19/22)
 - My Big Fat Greek Wedding (05/19/22)
 - The Color Purple (05/22/22)
+- My Best Friend's Wedding (05/22/22)
+- 9 to 5 (05/31/22)
 
 ### April 2022
 - The Social Network (04/01/22)
