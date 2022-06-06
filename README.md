@@ -7,6 +7,7 @@
 ### June 2022
 - Rushmore (06/01/22)
 - Juno (06/01/22)
+- Election (06/05/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
