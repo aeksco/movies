@@ -8,6 +8,13 @@
 - Rushmore (06/01/22)
 - Juno (06/01/22)
 - Election (06/05/22)
+- Interstellar (06/06/22)
+- Spencer (06/06/22)
+- Erin Brockovich (06/10/22)
+- Waterworld (06/11/22)
+- Erin Brockovich (06/11/22)
+- Small Time Crooks (06/11/22)
+- Groundhog Day (06/11/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
