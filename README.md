@@ -15,6 +15,8 @@
 - Erin Brockovich (06/11/22)
 - Small Time Crooks (06/11/22)
 - Groundhog Day (06/11/22)
+- The Usual Suspects (06/15/22)
+- The Big Short (06/15/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
