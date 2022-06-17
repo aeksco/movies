@@ -17,6 +17,8 @@
 - Groundhog Day (06/11/22)
 - The Usual Suspects (06/15/22)
 - The Big Short (06/15/22)
+- Vice (06/16/22)
+- Don't Look Up (06/15/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
