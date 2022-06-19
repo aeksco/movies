@@ -19,6 +19,8 @@
 - The Big Short (06/15/22)
 - Vice (06/16/22)
 - Don't Look Up (06/15/22)
+- Three Billboards Outside Ebbing, Missouri (06/19/22)
+- The Black Church (PBS Documentary) (06/19/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
@@ -420,6 +422,7 @@
 - Goodfellas (09/19/20)
 - My Blue Heaven (09/20/20)
 - The Devil's Advocate (09/21/20)
+- Three Billboards Outside Ebbing, Missouri (09/21/22)
 - Million Dollar Baby (09/21/20)
 - Glory (09/22/20)
 - The Town (09/23/20)
