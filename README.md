@@ -22,6 +22,7 @@
 - Three Billboards Outside Ebbing, Missouri (06/19/22)
 - The Black Church (PBS Documentary) (06/19/22)
 - Ken Burns: The Civil War (06/19/22 - 06/20/22)
+- 300 (06/22/22)
 
 ### May 2022
 - The Mummy (1999) (05/02/22)
