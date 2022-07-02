@@ -4,6 +4,9 @@
 
 ---
 
+### July 2022
+- The Irishman (07/01/22)
+
 ### June 2022
 - Rushmore (06/01/22)
 - Juno (06/01/22)
