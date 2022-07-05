@@ -8,6 +8,7 @@
 - The Irishman (07/01/22)
 - Bowfinger (07/03/22)
 - Independence Day (07/03/22)
+- Due Date (07/05/22)
 
 ### June 2022
 - Rushmore (06/01/22)
