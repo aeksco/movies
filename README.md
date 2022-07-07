@@ -10,6 +10,7 @@
 - Independence Day (07/03/22)
 - Due Date (07/05/22)
 - Titanic (07/05/22)
+- Anchorman (07/06/22)
 
 ### June 2022
 - Rushmore (06/01/22)
