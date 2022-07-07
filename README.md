@@ -11,6 +11,9 @@
 - Due Date (07/05/22)
 - Titanic (07/05/22)
 - Anchorman (07/06/22)
+- Mean Girls (07/06/22)
+- The Big Short (07/06/22)
+- Interstellar (07/07/22)
 
 ### June 2022
 - Rushmore (06/01/22)
