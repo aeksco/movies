@@ -17,6 +17,7 @@
 - The Big Short (07/07/22)
 - Interstellar (07/07/22)
 - Dumb and Dumber (07/09/22)
+- El Camino (07/12/22)
 
 ### June 2022
 - Rushmore (06/01/22)
