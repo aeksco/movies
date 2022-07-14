@@ -19,6 +19,11 @@
 - Dumb and Dumber (07/09/22)
 - Zero Dark Thirty (07/11/22)
 - El Camino (07/12/22)
+- Little Miss Sunshine (07/13/22)
+- The Grand Budapest Hotel (07/13/22)
+- Gravity (07/13/22)
+
+
 
 ### June 2022
 - Rushmore (06/01/22)
