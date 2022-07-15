@@ -23,6 +23,7 @@
 - The Grand Budapest Hotel (07/13/22)
 - Gravity (07/13/22)
 - Stepmom (07/13/22)
+- Forest Gump (07/15/22)
 
 
 ### June 2022
