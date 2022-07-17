@@ -25,6 +25,7 @@
 - Stepmom (07/13/22)
 - Forest Gump (07/15/22)
 - The Grand Budapest Hotel (07/15/22)
+- The Late Shift (07/16/22)
 
 
 ### June 2022
