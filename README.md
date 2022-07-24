@@ -34,6 +34,7 @@
 - Jack (07/23/22)
 - The Simpsons Movie (07/23/22)
 - The Nightmare Before Christmas (07/23/22)
+- Holes (07/24/22)
 
 
 ### June 2022
