@@ -4,6 +4,10 @@
 
 ---
 
+### August 2022
+- Little Miss Sunshine (07/7/22)
+- Love and Mercy (07/7/22)
+
 ### July 2022
 - The Irishman (07/01/22)
 - Bowfinger (07/03/22)
@@ -36,7 +40,6 @@
 - The Nightmare Before Christmas (07/23/22)
 - Holes (07/24/22)
 - Goodfellas (07/29/22)
-
 
 ### June 2022
 - Rushmore (06/01/22)
