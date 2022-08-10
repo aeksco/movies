@@ -5,8 +5,10 @@
 ---
 
 ### August 2022
-- Little Miss Sunshine (07/7/22)
-- Love and Mercy (07/7/22)
+- Little Miss Sunshine (08/07/22)
+- Love and Mercy (08/07/22)
+- Spiderman 2 (08/09/22)
+- Men In Black (08/09/22)
 
 ### July 2022
 - The Irishman (07/01/22)
