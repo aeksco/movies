@@ -10,6 +10,7 @@
 - Spiderman 2 (08/09/22)
 - Men In Black (08/09/22)
 - JFK (08/11/22)
+- Anastasia (08/11/22)
 
 ### July 2022
 - The Irishman (07/01/22)
