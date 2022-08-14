@@ -11,6 +11,7 @@
 - Men In Black (08/09/22)
 - JFK (08/11/22)
 - Anastasia (08/11/22)
+- The Reader (08/13/22)
 
 ### July 2022
 - The Irishman (07/01/22)
