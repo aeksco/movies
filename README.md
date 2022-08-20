@@ -15,6 +15,7 @@
 - Whiplash (08/16/22)
 - The Patriot (08/18/22)
 - Whiplash (08/20/22)
+- The Core (08/20/22)
 
 ### July 2022
 - The Irishman (07/01/22)
