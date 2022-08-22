@@ -21,6 +21,7 @@
 - Bend It Like Beckham (08/20/22)
 - Life of Pi (08/21/22)
 - Slumdog Millionaire (08/21/22)
+- For Your Consideration (08/22/22)
 
 ### July 2022
 - The Irishman (07/01/22)
