@@ -12,11 +12,14 @@
 - JFK (08/11/22)
 - Anastasia (08/11/22)
 - The Reader (08/13/22)
+- Cold Mountain (08/15/22)
 - Whiplash (08/16/22)
 - The Patriot (08/18/22)
 - Whiplash (08/20/22)
 - The Core (08/20/22)
 - Wedding Season (08/20/22)
+- Bend It Like Beckham (08/20/22)
+- Life of Pi (08/21/22)
 
 ### July 2022
 - The Irishman (07/01/22)
