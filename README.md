@@ -23,6 +23,8 @@
 - Slumdog Millionaire (08/21/22)
 - For Your Consideration (08/22/22)
 - Evolution (08/23/22)
+- Atonement (08/31/22)
+- The King's Speech (08/31/22)
 
 ### July 2022
 - The Irishman (07/01/22)
