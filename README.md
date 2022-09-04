@@ -4,6 +4,10 @@
 
 ---
 
+### September 2022
+- The Tragedy of Macbeth (09/03/22)
+- The Sword in the Stone (09/03/22)
+
 ### August 2022
 - Little Miss Sunshine (08/07/22)
 - Love and Mercy (08/07/22)
