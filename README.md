@@ -5,8 +5,10 @@
 ---
 
 ### September 2022
+- Elvis (09/01/22)
 - The Tragedy of Macbeth (09/03/22)
 - The Sword in the Stone (09/03/22)
+- Elvis (09/03/22)
 
 ### August 2022
 - Little Miss Sunshine (08/07/22)
