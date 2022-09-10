@@ -11,6 +11,8 @@
 - Elvis (09/03/22)
 - Napoleon Dynamite (09/06/22)
 - Jumanji (09/07/22)
+- American Beauty (09/09/22)
+- The Terminal (09/09/22)
 
 ### August 2022
 - Little Miss Sunshine (08/07/22)
