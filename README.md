@@ -14,6 +14,8 @@
 - American Beauty (09/09/22)
 - The Terminal (09/09/22)
 - Men In Black III (09/09/22)
+- Kill Bill Vol. 1 (09/12/22)
+- Kill Bill Vol. 2 (09/12/22)
 
 ### August 2022
 - Little Miss Sunshine (08/07/22)
