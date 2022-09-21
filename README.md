@@ -16,6 +16,9 @@
 - Men In Black III (09/09/22)
 - Kill Bill Vol. 1 (09/12/22)
 - Kill Bill Vol. 2 (09/12/22)
+- Father of the Bride (09/20/22)
+- Father of the Bride Pt. 2 (09/20/22)
+- Hot Tub Time Machine (09/21/22)
 
 ### August 2022
 - Little Miss Sunshine (08/07/22)
