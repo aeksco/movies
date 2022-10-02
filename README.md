@@ -4,6 +4,10 @@
 
 ---
 
+### October 2022
+- Steve Jobs (10/01/22)
+- Wedding Crashers (10/02/22)
+
 ### September 2022
 - Elvis (09/01/22)
 - The Tragedy of Macbeth (09/03/22)
@@ -19,6 +23,7 @@
 - Father of the Bride (09/20/22)
 - Father of the Bride Pt. 2 (09/20/22)
 - Hot Tub Time Machine (09/21/22)
+- The Irishman (09/30/22)
 
 ### August 2022
 - Little Miss Sunshine (08/07/22)
