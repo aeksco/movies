@@ -7,6 +7,7 @@
 ### October 2022
 - Steve Jobs (10/01/22)
 - Wedding Crashers (10/02/22)
+- Bad Words (10/04/22)
 
 ### September 2022
 - Elvis (09/01/22)
