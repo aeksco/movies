@@ -8,6 +8,7 @@
 - Steve Jobs (10/01/22)
 - Wedding Crashers (10/02/22)
 - Bad Words (10/04/22)
+- How to Lose a Guy in 10 Days (10/04/22)
 
 ### September 2022
 - Elvis (09/01/22)
