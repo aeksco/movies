@@ -10,9 +10,10 @@
 - Bad Words (10/04/22)
 - How to Lose a Guy in 10 Days (10/04/22)
 - No Strings Attached (10/04/22)
-- The Godfather Pt. 1 (10/7/22)
+- The Godfather Pt. I (10/7/22)
 - Hocus Pocus 2 (10/8/22)
-- The Godfather Pt. 2 (10/9/22)
+- The Godfather Pt. II (10/9/22)
+- The Godfather Pt. III (10/10/22)
 
 ### September 2022
 - Elvis (09/01/22)
