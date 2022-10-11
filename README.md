@@ -14,6 +14,7 @@
 - Hocus Pocus 2 (10/8/22)
 - The Godfather Pt. II (10/9/22)
 - The Godfather Pt. III (10/10/22)
+- Disney's The Kid (10/10/22)
 
 ### September 2022
 - Elvis (09/01/22)
