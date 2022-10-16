@@ -17,6 +17,7 @@
 - Disney's The Kid (10/10/22)
 - 30 Minutes Or Less (10/11/22)
 - Yes Man (10/12/22)
+- Angels in America (10/15/22 - 10/16/22)
 
 ### September 2022
 - Elvis (09/01/22)
