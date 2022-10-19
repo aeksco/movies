@@ -19,6 +19,7 @@
 - Yes Man (10/12/22)
 - Angels in America (10/15/22 - 10/16/22)
 - Bridesmaids (10/18/22)
+- Hidden Figures (10/18/22)
 
 ### September 2022
 - Elvis (09/01/22)
