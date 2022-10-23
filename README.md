@@ -22,6 +22,8 @@
 - Hidden Figures (10/18/22)
 - Silence of the Lambs (10/19/22)
 - John Q. (10/22/22)
+- 28 Days Later (10/22/22)
+- The Wedding Singer (10/22/22)
 
 ### September 2022
 - Elvis (09/01/22)
