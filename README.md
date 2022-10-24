@@ -24,6 +24,7 @@
 - John Q. (10/22/22)
 - 28 Days Later (10/22/22)
 - The Wedding Singer (10/22/22)
+- 13 Going On 30 (10/23/22)
 
 ### September 2022
 - Elvis (09/01/22)
