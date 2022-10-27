@@ -27,6 +27,8 @@
 - 13 Going On 30 (10/23/22)
 - AI (10/23/22)
 - Moonstruck (10/23/22)
+- Fat Man and Little Boy (10/25/22)
+- 28 Weeks Later (10/26/22)
 
 ### September 2022
 - Elvis (09/01/22)
