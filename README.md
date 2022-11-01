@@ -4,6 +4,9 @@
 
 ---
 
+### November 2022
+- ?
+
 ### October 2022
 - Steve Jobs (10/01/22)
 - Wedding Crashers (10/02/22)
