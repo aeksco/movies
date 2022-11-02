@@ -5,7 +5,9 @@
 ---
 
 ### November 2022
-- ?
+- Hocus Pocus (11/01/22)
+- Cheaper by the Dozen (11/01/22)
+- Flubber (11/01/22)
 
 ### October 2022
 - Steve Jobs (10/01/22)
