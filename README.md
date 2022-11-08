@@ -9,9 +9,12 @@
 - Cheaper by the Dozen (11/01/22)
 - Flubber (11/01/22)
 - Freaky Friday (11/03/22)
+- A Cinderella Story (11/03/22)
 - Confessions of a Shopaholic (11/03/22)
 - Toy Story (11/05/22)
 - Toy Story 2 (11/05/22)
+- Toy Story 3 (11/06/22)
+- Toy Story 4 (11/07/22)
 
 ### October 2022
 - Steve Jobs (10/01/22)
