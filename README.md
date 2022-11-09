@@ -11,10 +11,14 @@
 - Freaky Friday (11/03/22)
 - A Cinderella Story (11/03/22)
 - Confessions of a Shopaholic (11/03/22)
+- A Bug's Life (11/05/22)
 - Toy Story (11/05/22)
 - Toy Story 2 (11/05/22)
 - Toy Story 3 (11/06/22)
 - Toy Story 4 (11/07/22)
+- Night at the Museum (11/08/22)
+- James and the Giant Peach (11/08/22)
+- Atlantis (11/09/22)
 
 ### October 2022
 - Steve Jobs (10/01/22)
