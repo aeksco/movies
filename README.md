@@ -19,6 +19,9 @@
 - Night at the Museum (11/08/22)
 - James and the Giant Peach (11/08/22)
 - Atlantis (11/09/22)
+- Elf (11/23/22)
+- Klaus (11/24/22)
+- The Lego Movie (11/27/22)
 
 ### October 2022
 - Steve Jobs (10/01/22)
