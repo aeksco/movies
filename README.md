@@ -4,6 +4,11 @@
 
 ---
 
+### December 2022
+- Princess Mononoke (12/01/22)
+- Moneyball (12/02/22)
+- Mamma Mia (12/02/22)
+
 ### November 2022
 - Hocus Pocus (11/01/22)
 - Cheaper by the Dozen (11/01/22)
