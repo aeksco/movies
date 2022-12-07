@@ -8,6 +8,7 @@
 - Princess Mononoke (12/01/22)
 - Moneyball (12/02/22)
 - Mamma Mia (12/02/22)
+- I Love You, Man (12/06/22)
 
 ### November 2022
 - Hocus Pocus (11/01/22)
@@ -27,6 +28,7 @@
 - Elf (11/23/22)
 - Klaus (11/24/22)
 - The Lego Movie (11/27/22)
+- Beauty and the Beast (11/28/22)
 
 ### October 2022
 - Steve Jobs (10/01/22)
