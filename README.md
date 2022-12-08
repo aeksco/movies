@@ -9,6 +9,7 @@
 - Moneyball (12/02/22)
 - Mamma Mia (12/02/22)
 - I Love You, Man (12/06/22)
+- Notting Hill (12/07/22)
 
 ### November 2022
 - Hocus Pocus (11/01/22)
