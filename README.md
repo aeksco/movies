@@ -8,6 +8,7 @@
 - Princess Mononoke (12/01/22)
 - Moneyball (12/02/22)
 - Mamma Mia (12/02/22)
+- The Irishman (12/05/22)
 - I Love You, Man (12/06/22)
 - Notting Hill (12/07/22)
 
