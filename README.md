@@ -11,6 +11,11 @@
 - The Irishman (12/05/22)
 - I Love You, Man (12/06/22)
 - Notting Hill (12/07/22)
+- Titanic (12/11/22)
+- Goodfellas (12/11/22)
+- Interstellar (12/13/22)
+- The Ring (12/13/22)
+- Interstellar (12/14/22)
 
 ### November 2022
 - Hocus Pocus (11/01/22)
