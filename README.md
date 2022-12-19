@@ -19,6 +19,8 @@
 - Home Alone 2: Lost in New York (12/17/22)
 - Miracle of 34th Street (1994) (12/17/22)
 - Life of Pi (12/18/22)
+- The Grand Budapest Hotel (12/18/22)
+- Good Will Hunting (12/19/22)
 
 ### November 2022
 - Hocus Pocus (11/01/22)
