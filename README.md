@@ -26,6 +26,8 @@
 - Four Christmases (12/20/22)
 - Noelle (12/20/22)
 - Gone Girl (12/20/22)
+- The Hobbit: The Desolation of Smaug (12/31/22)
+
 
 ### November 2022
 - Hocus Pocus (11/01/22)
