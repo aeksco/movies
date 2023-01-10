@@ -5,7 +5,12 @@
 ---
 
 ### January 2023
-- Glass Onion (01/01/22)
+- Glass Onion (01/01/23)
+- The Lord of the Rings: The Return of the King (Theatrical Cut) (01/3/23)
+- Mathilda (01/04/23)
+- See How They Run (01/08/23)
+- The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/8/23)
+
 
 ### December 2022
 - Princess Mononoke (12/01/22)
