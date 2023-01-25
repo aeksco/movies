@@ -12,8 +12,13 @@
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/08/23)
 - The Aviator (01/15/22)
 - The Hoax (01/17/22)
-- Almost Heroes (01/20/22)
+- Lord of War (01/20/22)
+- Almost Heroes (01/21/22)
 - JFK (01/21/22)
+- Reservoir Dogs (01/23/22)
+- Jackie Brown (01/23/22)
+- Jackie Brown (01/24/22)
+- Jackie Brown (01/24/22)
 
 ### December 2022
 - Princess Mononoke (12/01/22)
