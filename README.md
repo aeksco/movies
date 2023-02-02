@@ -4,6 +4,9 @@
 
 ---
 
+### February 2023
+- Bruce Almighty (02/01/23)
+
 ### January 2023
 - Glass Onion (01/01/23)
 - The Lord of the Rings: The Return of the King (Theatrical Cut) (01/03/23)
