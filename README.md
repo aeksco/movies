@@ -6,6 +6,8 @@
 
 ### February 2023
 - Bruce Almighty (02/01/23)
+- Casino (02/04/23)
+- The Matrix (02/05/23)
 
 ### January 2023
 - Glass Onion (01/01/23)
@@ -13,16 +15,16 @@
 - Mathilda (01/04/23)
 - See How They Run (01/08/23)
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/08/23)
-- The Aviator (01/15/22)
-- The Hoax (01/17/22)
-- Lord of War (01/20/22)
-- Almost Heroes (01/21/22)
-- JFK (01/21/22)
-- Reservoir Dogs (01/23/22)
-- Jackie Brown (01/23/22)
-- Jackie Brown (01/24/22)
-- Jackie Brown (01/24/22)
-- Reservoir Dogs (01/25/22)
+- The Aviator (01/15/23)
+- The Hoax (01/17/23)
+- Lord of War (01/20/23)
+- Almost Heroes (01/21/23)
+- JFK (01/21/23)
+- Reservoir Dogs (01/23/23)
+- Jackie Brown (01/23/23)
+- Jackie Brown (01/24/23)
+- Jackie Brown (01/24/23)
+- Reservoir Dogs (01/25/23)
 
 ### December 2022
 - Princess Mononoke (12/01/22)
