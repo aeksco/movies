@@ -8,6 +8,10 @@
 - Bruce Almighty (02/01/23)
 - Casino (02/04/23)
 - The Matrix (02/05/23)
+- Shrek (02/17/22)
+- Everything, Everywhere, All At Once (02/19/22)
+- Julie and Julia (02/21/22)
+- Office Space (02/21/22)
 
 ### January 2023
 - Glass Onion (01/01/23)
