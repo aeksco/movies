@@ -4,8 +4,18 @@
 
 ---
 
+### April 2023
+- Star Wars: The Force Awawkens (04/02/23)
+- The Bourne Identity (04/03/23)
+
 ### March 2023
 - The Banshees of Inisherin (03/12/23)
+- Star Wars: The Last Jedi
+- Star Wars: The Rise of Skywalker
+- Star Wars: Ep. I - The Phantom Menace
+- Star Wars: Ep. II - Attack of the Clones
+- Star Wars: Ep. III - Revenge of the Sith
+- The Parent Trap (1998)
 
 ### February 2023
 - Bruce Almighty (02/01/23)
