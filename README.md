@@ -10,6 +10,8 @@
 - The Dark Knight (04/11/23)
 - Galaxy Quest (04/11/23)
 - 2001: A Space Odyssey
+- Harry Potter and the Order of the Phoenix (04/13/23)
+- Harry Potter and the Goblet of Fire (04/15/23)
 
 ### March 2023
 - The Banshees of Inisherin (03/12/23)
