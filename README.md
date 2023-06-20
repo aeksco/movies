@@ -14,6 +14,8 @@
 - Glengarry Glen Ross (06/18/20)
 - Whiplash (06/18/20)
 - The Super Mario Bros. Movie (06/19/23)
+- Casino (06/20/23)
+- The Godfather Pt. III (06/20/23)
 
 ### May 2023
 - Marie Antoinette (05/06/23)
