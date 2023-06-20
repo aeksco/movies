@@ -4,6 +4,17 @@
 
 ---
 
+### June 2023
+- Tár (06/14/23)
+- Tár (06/14/23)
+- Glengarry Glen Ross (06/15/20)
+- Tár (06/16/23)
+- The Godfather Pt. I (06/16/23)
+- The Godfather Pt. II (06/17/23)
+- Glengarry Glen Ross (06/18/20)
+- Whiplash (06/18/20)
+- The Super Mario Bros. Movie (06/19/23)
+
 ### May 2023
 - Marie Antoinette (05/06/23)
 - Amadeus (05/08/23)
