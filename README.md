@@ -17,6 +17,7 @@
 - Casino (06/20/23)
 - The Godfather Pt. III (06/20/23)
 - Saving Private Ryan (06/21/23)
+- Tár (06/21/23)
 
 ### May 2023
 - Marie Antoinette (05/06/23)
