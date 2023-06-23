@@ -20,6 +20,7 @@
 - Tár (06/21/23)
 - Dunkirk (06/21/23)
 - Vertigo (06/22/23)
+- The Favorite (06/23/23)
 
 ### May 2023
 - Marie Antoinette (05/06/23)
