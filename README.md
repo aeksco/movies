@@ -23,6 +23,7 @@
 - The Favorite (06/23/23)
 - The Shining (06/23/23)
 - The Truman Show (06/23/23)
+- The Super Mario Bros. Movie (06/24/23)
 
 ### May 2023
 - Marie Antoinette (05/06/23)
