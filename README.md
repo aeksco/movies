@@ -25,6 +25,7 @@
 - The Truman Show (06/23/23)
 - The Super Mario Bros. Movie (06/24/23)
 - American Beauty (06/24/23)
+- The Mummy (06/25/23)
 - GoldenEye (06/25/23)
 
 ### May 2023
