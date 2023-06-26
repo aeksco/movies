@@ -27,6 +27,8 @@
 - American Beauty (06/24/23)
 - The Mummy (06/24/23)
 - GoldenEye (06/25/23)
+- Scent of a Woman (06/25/23)
+- Batman Begins (06/26/23)
 
 ### May 2023
 - Marie Antoinette (05/06/23)
