@@ -4,6 +4,10 @@
 
 ---
 
+### July 2023
+- October Sky (07/01/23)
+- Cast Away (07/01/23)
+
 ### June 2023
 - Tár (06/14/23)
 - Tár (06/14/23)
@@ -23,14 +27,19 @@
 - The Favorite (06/23/23)
 - The Shining (06/23/23)
 - The Truman Show (06/23/23)
+- Back to the Future (06/22/23)
 - The Super Mario Bros. Movie (06/24/23)
 - American Beauty (06/24/23)
 - The Mummy (06/24/23)
 - GoldenEye (06/25/23)
 - Scent of a Woman (06/25/23)
 - Batman Begins (06/26/23)
+- Back to the Future: Part II (06/26/23)
 - Everything, Everywhere, All At Once (06/27/23)
+- 2001: A Space Odyssey (06/27/23)
 - Ray (06/27/23)
+- Glengarry Glen Ross (06/29/23)
+- Braveheart (06/30/23) 
 
 ### May 2023
 - Marie Antoinette (05/06/23)
