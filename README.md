@@ -7,6 +7,7 @@
 ### July 2023
 - October Sky (07/01/23)
 - Cast Away (07/01/23)
+- Don't Look Up (07/03/23)
 
 ### June 2023
 - Tár (06/14/23)
