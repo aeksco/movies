@@ -8,6 +8,8 @@
 - October Sky (07/01/23)
 - Cast Away (07/01/23)
 - Don't Look Up (07/03/23)
+- My Cousin Vinny (07/04/23)
+- The Martian (07/04/23)
 
 ### June 2023
 - Tár (06/14/23)
