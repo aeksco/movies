@@ -11,6 +11,7 @@
 - My Cousin Vinny (07/04/23)
 - The Martian (07/04/23)
 - Starship Troopers (07/05/23)
+- Pleasantville (07/06/23)
 
 ### June 2023
 - Tár (06/14/23)
