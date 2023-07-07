@@ -13,6 +13,7 @@
 - Starship Troopers (07/05/23)
 - Pleasantville (07/06/23)
 - Independence Day (07/06/23)
+- Indiana Jones and the Dial of Destiny (07/06/23)
 
 ### June 2023
 - Tár (06/14/23)
