@@ -17,6 +17,7 @@
 - The Mummy Returns (07/07/23)
 - The Big Short (07/07/23)
 - The Usual Suspects (07/08/23)
+- Gravity (07/08/23)
 - The Social Network (07/08/23)
 - Bowfinger (07/08/23)
 - Titanic (07/09/23)
