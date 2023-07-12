@@ -22,6 +22,9 @@
 - Bowfinger (07/08/23)
 - Titanic (07/09/23)
 - There Will Be Blood (07/10/23)
+- Gone Girl (07/10/23)
+- Forgetting Sarah Marshall (07/11/23)
+- There Will Be Blood (07/12/23)
 
 ### June 2023
 - Tár (06/14/23)
