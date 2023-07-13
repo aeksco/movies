@@ -28,6 +28,7 @@
 - Election (07/12/23)
 - Little Miss Sunshine (07/12/23)
 - Muriel's Wedding (07/13/23)
+- Rushmore (07/13/23)
 
 ### June 2023
 - Tár (06/14/23)
