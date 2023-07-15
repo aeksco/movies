@@ -30,7 +30,10 @@
 - Muriel's Wedding (07/13/23)
 - Rushmore (07/13/23)
 - The Pest (07/13/23)
+- Catch Me If You Can (07/14/23)
 - Doubt (07/14/23)
+- The Rock (07/14/23)
+- The Sixth Sense (07/15/23)
 
 ### June 2023
 - Tár (06/14/23)
