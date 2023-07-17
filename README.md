@@ -34,6 +34,7 @@
 - Doubt (07/14/23)
 - The Rock (07/14/23)
 - The Sixth Sense (07/15/23)
+- The Matrix (07/17/23)
 
 ### June 2023
 - Tár (06/14/23)
