@@ -37,6 +37,7 @@
 - The Matrix (07/17/23)
 - Past Lives (07/17/23)
 - Star Wars: The Empire Strikes Back (07/18/23)
+- Mad Max: Fury Road (07/21/23)
 - Oppenheimer (07/21/23)
 - Amadeus (07/23/23)
 
