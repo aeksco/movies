@@ -40,6 +40,7 @@
 - Mad Max: Fury Road (07/21/23)
 - Oppenheimer (07/21/23)
 - Amadeus (07/23/23)
+- Asteroid City (07/25/23)
 
 ### June 2023
 - Tár (06/14/23)
