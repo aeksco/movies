@@ -42,6 +42,7 @@
 - Amadeus (07/23/23)
 - Asteroid City (07/25/23)
 - Cast Away (07/27/23)
+- Silver Linings Playbook (07/27/23)
 
 ### June 2023
 - Tár (06/14/23)
