@@ -43,6 +43,13 @@
 - Asteroid City (07/25/23)
 - Cast Away (07/27/23)
 - Silver Linings Playbook (07/27/23)
+- The Banshees of Inisherin (07/27/23)
+- Knives Out (07/28/23)
+- Interstellar (07/28/23)
+- The Mask (07/29/23)
+- Ford v Ferrari (07/30/23)
+- Carol (07/30/23)
+- Elvis 07/30/23)
 
 ### June 2023
 - Tár (06/14/23)
