@@ -4,6 +4,10 @@
 
 ---
 
+### August 2023
+- Tár (08/01/23)
+- Young Frankenstein (08/02/23)
+
 ### July 2023
 - October Sky (07/01/23)
 - Cast Away (07/01/23)
