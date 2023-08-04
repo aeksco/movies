@@ -8,6 +8,8 @@
 - Tár (08/01/23)
 - Young Frankenstein (08/02/23)
 - Tár (08/03/23)
+- The Royal Tenenbaums (08/08/23)
+- Ferris Bueller's Day Off (08/04/23)
 
 ### July 2023
 - October Sky (07/01/23)
