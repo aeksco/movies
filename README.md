@@ -12,6 +12,7 @@
 - Ferris Bueller's Day Off (08/04/23)
 - Oppenheimer (08/06/23)
 - Where the Crawdads Sing (08/07/23)
+- Ford v. Ferrari (08/08/23)
 
 ### July 2023
 - October Sky (07/01/23)
