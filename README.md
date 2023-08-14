@@ -15,6 +15,7 @@
 - Ford v. Ferrari (08/08/23)
 - The Banshees of Inisherin (08/09/23)
 - Moneyball (08/15/23)
+- Cold Mountain (08/15/23)
 
 ### July 2023
 - October Sky (07/01/23)
