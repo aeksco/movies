@@ -14,9 +14,10 @@
 - Where the Crawdads Sing (08/07/23)
 - Ford v. Ferrari (08/08/23)
 - The Banshees of Inisherin (08/09/23)
-- Moneyball (08/15/23)
-- Cold Mountain (08/15/23)
-- Hot Fuzz (08/15/23)
+- Moneyball (08/14/23)
+- Cold Mountain (08/14/23)
+- Hot Fuzz (08/14/23)
+- The Usual Suspects (08/16/23)
 
 ### July 2023
 - October Sky (07/01/23)
