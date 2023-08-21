@@ -22,6 +22,7 @@
 - O Brother, Where Art Thou? (08/17/23)
 - Miss Congeniality (08/20/23)
 - A.I. Artificial Intelligence (08/21/23)
+- RoboCop (08/21/23)
 
 ### July 2023
 - October Sky (07/01/23)
