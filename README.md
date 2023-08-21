@@ -23,6 +23,7 @@
 - Miss Congeniality (08/20/23)
 - A.I. Artificial Intelligence (08/21/23)
 - RoboCop (08/21/23)
+- Galaxy Quest (08/22/23)
 
 ### July 2023
 - October Sky (07/01/23)
