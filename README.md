@@ -18,8 +18,10 @@
 - Cold Mountain (08/14/23)
 - Hot Fuzz (08/14/23)
 - The Usual Suspects (08/16/23)
-- - Three Billboards Outside Ebbing, Missouri (08/18/23)
+- Three Billboards Outside Ebbing, Missouri (08/18/23)
 - O Brother, Where Art Thou? (08/17/23)
+- Miss Congeniality (08/20/23)
+- A.I. Artificial Intelligence (08/21/23)
 
 ### July 2023
 - October Sky (07/01/23)
@@ -944,7 +946,7 @@
 - Captain America - The First Avenger (6/2/19)
 - The Wolf Of Wall Street (6/2/19)
 - Isle of Dogs (6/6/19)
-- A.I. (6/6/19)
+- A.I. Artificial Intelligence (6/6/19)
 - The Brothers Solomon (6/6/19)
 - Get Out (6/7/19)
 - Waiting (6/7/19)
