@@ -27,6 +27,7 @@
 - The Parent Trap (08/23/23)
 - The Irishman (08/24/23)
 - The Aviator (08/25/23)
+- Thank You For Smoking (08/25/23)
 - The Wolf of Wall St. (08/26/23)
 - Big Fish (08/27/23)
 
