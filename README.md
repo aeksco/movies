@@ -24,6 +24,11 @@
 - A.I. Artificial Intelligence (08/21/23)
 - RoboCop (08/21/23)
 - Galaxy Quest (08/21/23)
+- The Parent Trap (08/23/23)
+- The Irishman (08/24/23)
+- The Aviator (08/25/23)
+- The Wolf of Wall St. (08/26/23)
+- Big Fish (08/27/23)
 
 ### July 2023
 - October Sky (07/01/23)
