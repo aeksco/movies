@@ -30,6 +30,7 @@
 - Thank You For Smoking (08/25/23)
 - The Wolf of Wall St. (08/26/23)
 - Big Fish (08/27/23)
+- Lord Of War (08/28/23)
 
 ### July 2023
 - October Sky (07/01/23)
