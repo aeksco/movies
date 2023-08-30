@@ -33,6 +33,7 @@
 - Lord Of War (08/28/23)
 - Interstellar (08/29/23)
 - Alien (08/29/23)
+- Past Lives (08/29/23)
 
 ### July 2023
 - October Sky (07/01/23)
