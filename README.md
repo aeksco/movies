@@ -4,6 +4,11 @@
 
 ---
 
+### September 2023
+
+- 10 Things I Hate About You (09/03/23)
+- Mean Girls (09/04/23)
+
 ### August 2023
 - Tár (08/01/23)
 - Young Frankenstein (08/02/23)
