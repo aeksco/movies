@@ -10,7 +10,7 @@
 - Mean Girls (09/04/23)
 - Oppenheimer (09/13/23)
 - The Matrix (09/13/23)
-- Meet The Parent (09/13/23)
+- Meet The Parents (09/13/23)
 
 ### August 2023
 - Tár (08/01/23)
