@@ -11,6 +11,9 @@
 - Oppenheimer (09/13/23)
 - The Matrix (09/13/23)
 - Meet The Parents (09/13/23)
+- Star Wars: A New Hope (09/17/23)
+- Star Wars: The Empire Strikes Back (09/17/23)
+- Star Wars: Return Of The Jedi (09/17/23)
 
 ### August 2023
 - Tár (08/01/23)
