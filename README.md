@@ -14,6 +14,8 @@
 - Star Wars: A New Hope (09/17/23)
 - Star Wars: The Empire Strikes Back (09/17/23)
 - Star Wars: Return Of The Jedi (09/17/23)
+- Watchmen (HBO) (09/21/23)
+- Watchmen (09/22/23)
 
 ### August 2023
 - Tár (08/01/23)
