@@ -16,6 +16,10 @@
 - Star Wars: Return Of The Jedi (09/17/23)
 - Watchmen (HBO) (09/21/23)
 - Watchmen (09/22/23)
+- The Princess Diaries (09/24/23)
+- Ghostbusters (09/24/23)
+- Theatre Camp (09/24/23)
+- Watchmen Motion Comic (09/24/23)
 
 ### August 2023
 - Tár (08/01/23)
