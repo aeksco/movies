@@ -20,6 +20,8 @@
 - Ghostbusters (09/24/23)
 - Theatre Camp (09/24/23)
 - Watchmen Motion Comic (09/24/23)
+- Star Wars: The Rise of Skywalker (09/27/23)
+- Charlie and the Chocolate Factory (09/27/23)
 
 ### August 2023
 - Tár (08/01/23)
