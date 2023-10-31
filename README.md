@@ -8,6 +8,7 @@
 - Little Miss Sunshine (08/06/23)
 - Interstellar (08/28/23)
 - Gladiator (08/31/23)
+- Snowpiercer (08/31/23)
 
 ### September 2023
 
@@ -934,7 +935,7 @@
 - The Big Short (9/19/19)
 - Gravity (9/19/19)
 - The Lego Movie: The Second Part (9/22/19)
-- Snowpiecer (9/22/19)
+- Snowpiercer (9/22/19)
 - Jerry Maguire (9/23/19)
 - Booksmart (9/24/19)
 - You Can't Kill Meme (9/25/19)
