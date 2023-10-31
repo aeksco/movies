@@ -6,6 +6,8 @@
 
 ### October 2023
 - Little Miss Sunshine (08/06/23)
+- Interstellar (08/28/23)
+- Gladiator (08/31/23)
 
 ### September 2023
 
