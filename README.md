@@ -9,6 +9,7 @@
 - Interstellar (08/28/23)
 - Gladiator (08/31/23)
 - Snowpiercer (08/31/23)
+- The Irishman (08/31/23)
 
 ### September 2023
 
