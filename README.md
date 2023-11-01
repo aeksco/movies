@@ -4,12 +4,17 @@
 
 ---
 
+### November 2023
+- Black Hawk Down (11/01/23)
+- There Will Be Blood (11/01/23)
+- Pride and Prejudice (11/01/23)
+
 ### October 2023
-- Little Miss Sunshine (08/06/23)
-- Interstellar (08/28/23)
-- Gladiator (08/31/23)
-- Snowpiercer (08/31/23)
-- The Irishman (08/31/23)
+- Little Miss Sunshine (10/06/23)
+- Interstellar (10/28/23)
+- Gladiator (10/31/23)
+- Snowpiercer (10/31/23)
+- The Irishman (10/31/23)
 
 ### September 2023
 
