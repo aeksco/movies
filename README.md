@@ -9,6 +9,7 @@
 - There Will Be Blood (11/01/23)
 - Pride and Prejudice (11/01/23)
 - Uncle Buck (11/02/23)
+- Steve Jobs (11/03/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
