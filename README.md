@@ -10,6 +10,8 @@
 - Pride and Prejudice (11/01/23)
 - Uncle Buck (11/02/23)
 - Steve Jobs (11/03/23)
+- Easy A (11/03/25)
+- Signs (11/05/25)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
