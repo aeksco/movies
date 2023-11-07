@@ -13,6 +13,7 @@
 - Easy A (11/03/23)
 - Signs (11/05/23)
 - Silver Linings Playbook (11/06/23)
+- Tropic Thunder (11/07/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
