@@ -17,6 +17,7 @@
 - Howl's Moving Castle (11/10/23)
 - Walk The Line (11/10/23)
 - Don't Look Up (11/11/23)
+- Pleasantville (11/11/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
