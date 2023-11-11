@@ -14,6 +14,9 @@
 - Signs (11/05/23)
 - Silver Linings Playbook (11/06/23)
 - Tropic Thunder (11/07/23)
+- Howl's Moving Castle (11/10/23)
+- Walk The Line (11/10/23)
+- Don't Look Up (11/11/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
