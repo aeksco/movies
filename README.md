@@ -19,6 +19,9 @@
 - Don't Look Up (11/11/23)
 - Pleasantville (11/11/23)
 - BlacKkKlansman (11/11/23)
+- Killers of the Flower Moon (11/14/23)
+- Downfall (Der Untergang) (11/14/23)
+- Titanic (11/15/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
