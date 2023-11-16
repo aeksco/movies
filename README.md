@@ -22,6 +22,7 @@
 - Killers of the Flower Moon (11/14/23)
 - Downfall (Der Untergang) (11/14/23)
 - Titanic (11/15/23)
+- Oppenheimer (11/15/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
