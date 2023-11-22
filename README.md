@@ -26,6 +26,7 @@
 - Oppenheimer (11/15/23)
 - The King's Speech (11/20/23)
 - Oppenheimer (11/20/23)
+- Oppenheimer (11/22/23)
 
 ### October 2023
 - Little Miss Sunshine (10/06/23)
