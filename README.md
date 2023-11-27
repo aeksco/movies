@@ -26,8 +26,14 @@
 - Oppenheimer (11/15/23)
 - The King's Speech (11/20/23)
 - Oppenheimer (11/20/23)
+- 2001: A Space Odyssey (11/21/23)
+- Dunkirk (11/21/23)
 - Oppenheimer (11/22/23)
-
+- Tár (11/25/23)
+- The Lobster (11/26/23)
+- Oppenheimer (11/26/23)
+- Oppenheimer (11/27/23)
+  
 ### October 2023
 - Little Miss Sunshine (10/06/23)
 - Interstellar (10/28/23)
