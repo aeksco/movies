@@ -33,7 +33,8 @@
 - The Lobster (11/26/23)
 - Oppenheimer (11/26/23)
 - Oppenheimer (11/27/23)
-- Muriel's Wedding (07/13/23)
+- There Will Be Blood (11/28/23)
+- Muriel's Wedding (11/29/23)
   
 ### October 2023
 - Little Miss Sunshine (10/06/23)
