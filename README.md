@@ -38,6 +38,7 @@
 - Muriel's Wedding (11/29/23)
 - Dick (11/30/23)
 - Asteroid City (11/30/23)
+- No Reservations (11/30/23)
   
 ### October 2023
 - Little Miss Sunshine (10/06/23)
