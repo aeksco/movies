@@ -38,6 +38,7 @@
 - Oppenheimer (11/27/23)
 - Glengarry Glen Ross (11/27/23)
 - There Will Be Blood (11/28/23)
+- October Sky (11/28/23) 
 - Muriel's Wedding (11/29/23)
 - Dick (11/30/23)
 - Asteroid City (11/30/23)
