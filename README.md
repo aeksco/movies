@@ -7,6 +7,8 @@
 ### December 2023
 - The Martian (12/01/23)
 - A Beautiful Mind (12/01/23)
+- The Time Traveler's Wife (12/03/23)
+- Downsizing (12/04/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
