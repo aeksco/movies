@@ -11,7 +11,9 @@
 - Downsizing (12/04/23)
 - Oppenheimer (12/5/23)
 - Killers of the Flower Moon (12/05/23)
-- Sully (12/05/23)
+- Sully (12/06/23)
+- Killers of the Flower Moon (12/06/23)
+- Snowden (12/06/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
