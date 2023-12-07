@@ -14,6 +14,7 @@
 - Sully (12/06/23)
 - Killers of the Flower Moon (12/06/23)
 - Snowden (12/06/23)
+- The Founder (12/07/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
