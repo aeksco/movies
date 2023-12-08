@@ -15,6 +15,7 @@
 - Killers of the Flower Moon (12/06/23)
 - Snowden (12/06/23)
 - The Founder (12/07/23)
+- Ford v Ferrari (12/08/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
