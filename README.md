@@ -19,6 +19,7 @@
 - War Dogs (12/08/23)
 - That Thing You Do! (12/09/23)
 - Scott Pilgrim vs. the World (12/10/23)
+- Oppenheimer (12/13/23)
 
 
 ### November 2023
