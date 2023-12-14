@@ -22,6 +22,7 @@
 - Oppenheimer (12/13/23)
 - The Imitation Game (12/13/23)
 - Men In Black (12/13/23)
+- The Fly (12/14/23)
 
 
 ### November 2023
