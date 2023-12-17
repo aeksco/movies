@@ -23,6 +23,11 @@
 - The Imitation Game (12/13/23)
 - Men In Black (12/13/23)
 - The Fly (12/14/23)
+- Spotlight (12/14/21)
+- Small Time Crooks (12/14/22)
+- Jackie Brown (12/15/23)
+- Love and Mercy (12/15/22)
+- Vice (12/16/22)
 
 
 ### November 2023
