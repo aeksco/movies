@@ -29,7 +29,8 @@
 - Love and Mercy (12/15/22)
 - Vice (12/16/22)
 - Room (12/16/22)
-
+- Pirates of the Caribbean: The Curse of the Black Pearl (12/17/23)
+- Oppenheimer (12/18/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
