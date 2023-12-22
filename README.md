@@ -36,6 +36,7 @@
 - 10 Cloverfield Lane (12/20/23)
 - Sausage Party (12/20/23)
 - Hidden Figures (12/20/23)
+- Citizen Kane (12/21/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
