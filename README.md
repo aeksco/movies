@@ -37,6 +37,13 @@
 - Sausage Party (12/20/23)
 - Hidden Figures (12/20/23)
 - Citizen Kane (12/21/23)
+- Pulp Fiction (12/22/23)
+- Get Out (12/23/23)
+- Vertigo (12/24/23)
+- Catch Me If You Can (12/25/23)
+- Vertigo (12/25/23)
+- It's a Wonderful Life (12/26/23)
+- Moneyball (12/30/23)
 
 ### November 2023
 - Black Hawk Down (11/01/23)
