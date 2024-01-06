@@ -6,6 +6,9 @@
 
 ### January 2024
 - Us (01/03/24)
+- The Dark Knight (01/03/24)
+- Iron Man (01/04/24)
+- The Dark Knight Rises (01/05/24)
 
 ---
 
