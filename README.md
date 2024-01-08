@@ -9,6 +9,9 @@
 - The Dark Knight (01/03/24)
 - Iron Man (01/04/24)
 - The Dark Knight Rises (01/05/24)
+- Iron Man 2 (01/07/24)
+- Get Out (01/08/24)
+- Batman Begins (01/08/24)
 
 ---
 
