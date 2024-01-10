@@ -13,6 +13,8 @@
 - Get Out (01/07/24)
 - Batman Begins (01/07/24)
 - Groundhog Day (01/08/24)
+- Get Out (01/08/24)
+- Inside (01/09/24)
 
 ---
 
