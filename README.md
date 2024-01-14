@@ -15,6 +15,8 @@
 - Groundhog Day (01/08/24)
 - Get Out (01/08/24)
 - Inside (01/09/24)
+- Love and Mercy (01/13/24)
+- Dick (01/13/24)
 
 ---
 
