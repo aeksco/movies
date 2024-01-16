@@ -18,6 +18,10 @@
 - Love and Mercy (01/13/24)
 - Dick (01/13/24)
 - The Man Who Knew Too Much (01/13/24)
+- Sully (01/14/24)
+- The Social Network (01/14/24)
+- Jojo Rabbit (01/15/24)
+- I, Tonya (01/15/24)
 
 ---
 
