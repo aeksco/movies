@@ -22,6 +22,8 @@
 - The Social Network (01/14/24)
 - Jojo Rabbit (01/15/24)
 - I, Tonya (01/15/24)
+- The Big Short (01/16/24)
+- Oppenheimer (01/17/24)
 
 ---
 
