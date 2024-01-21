@@ -24,6 +24,8 @@
 - I, Tonya (01/15/24)
 - The Big Short (01/16/24)
 - Oppenheimer (01/17/24)
+- GoodFellas (01/19/24)
+- Killers of the Flower Moon (01/20/24)
 
 ---
 
