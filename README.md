@@ -27,6 +27,7 @@
 - GoodFellas (01/19/24)
 - Killers of the Flower Moon (01/20/24)
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/28/24)
+- The Lord of the Rings: The Two Towers (Theatrical Cut) (01/29/24)
 
 ---
 
