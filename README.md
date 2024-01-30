@@ -26,6 +26,9 @@
 - Oppenheimer (01/17/24)
 - GoodFellas (01/19/24)
 - Killers of the Flower Moon (01/20/24)
+- The Shawshank Redemption (01/21/24)
+- Eyes Wide Shut (01/23/24)
+- Cast Away (01/25/24)
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/28/24)
 - The Lord of the Rings: The Two Towers (Theatrical Cut) (01/29/24)
 
