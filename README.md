@@ -4,6 +4,9 @@
 
 ---
 
+### February 2024
+- Shattered Glass (02/01/24)
+
 ### January 2024
 - Us (01/03/24)
 - The Dark Knight (01/03/24)
@@ -31,6 +34,9 @@
 - Cast Away (01/25/24)
 - The Lord of the Rings: The Fellowship of the Ring (Theatrical Cut) (01/28/24)
 - The Lord of the Rings: The Two Towers (Theatrical Cut) (01/29/24)
+- Shattered Glass (01/31/24)
+- Maestro (01/31/24)
+- Skyfall (01/31/24)
 
 ---
 
