@@ -7,6 +7,7 @@
 ### February 2024
 - Shattered Glass (02/01/24)
 - Past Lives (02/01/24)
+- WALL-E (02/01/24)
 
 ### January 2024
 - Us (01/03/24)
