@@ -8,6 +8,11 @@
 - Shattered Glass (02/01/24)
 - Past Lives (02/01/24)
 - WALL-E (02/01/24)
+- Casino Royale (02/02/24)
+- Star Wars: The Force Awakens (02/03/24)
+- Uncut Gems (02/03/24)
+- Silence of the Lambs (02/04/24)
+- Uncut Gems (02/04/24)
 
 ### January 2024
 - Us (01/03/24)
