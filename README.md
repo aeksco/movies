@@ -13,6 +13,7 @@
 - Uncut Gems (02/03/24)
 - Silence of the Lambs (02/04/24)
 - Uncut Gems (02/04/24)
+- Lez Zeppelin: Celebration Day (02/05/24)
 
 ### January 2024
 - Us (01/03/24)
