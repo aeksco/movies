@@ -14,6 +14,11 @@
 - Silence of the Lambs (02/04/24)
 - Uncut Gems (02/04/24)
 - Lez Zeppelin: Celebration Day (02/05/24)
+- Fargo (02/06/24)
+- The Creator (02/06/24)
+- The Producers (02/07/24)
+- Silver Linings Playbook (02/08/24)
+- Juno (02/09/24)
 
 ### January 2024
 - Us (01/03/24)
