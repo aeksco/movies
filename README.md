@@ -19,6 +19,7 @@
 - The Producers (02/07/24)
 - Silver Linings Playbook (02/08/24)
 - Juno (02/09/24)
+- The Devil Wears Prada (02/13/24)
 
 ### January 2024
 - Us (01/03/24)
