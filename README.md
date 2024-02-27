@@ -20,6 +20,12 @@
 - Silver Linings Playbook (02/08/24)
 - Juno (02/09/24)
 - The Devil Wears Prada (02/13/24)
+- Oppenheimer (02/23/24)
+- That Thing You Do! (02/24/24)
+- Anatomy of a Fall (02/25/24)
+- American Fiction (02/25/24)
+- Juno (02/26/24)
+- The Imitation Game (02/26/24)
 
 ### January 2024
 - Us (01/03/24)
