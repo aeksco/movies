@@ -21,6 +21,7 @@
 - Juno (02/09/24)
 - The Devil Wears Prada (02/13/24)
 - Interstellar (02/14/24)
+- The Hobbit: An Unexpected Journey (02/15/24)
 - Peter Pan Goes Wrong (02/19/24)
 - The Patriot (02/20/24)
 - Flight (02/21/24)
@@ -35,6 +36,8 @@
 - The Imitation Game (02/26/24)
 - Shattered Glass (02/27/24)
 - American Fiction (02/27/24)
+- Everything, Everywhere, All At Once (02/27/24)
+
 
 ### January 2024
 - Us (01/03/24)
