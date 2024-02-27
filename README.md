@@ -34,6 +34,7 @@
 - Juno (02/26/24)
 - The Imitation Game (02/26/24)
 - Shattered Glass (02/27/24)
+- American Fiction (02/27/24)
 
 ### January 2024
 - Us (01/03/24)
