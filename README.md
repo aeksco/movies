@@ -4,6 +4,18 @@
 
 ---
 
+### March 2024
+- Oppenheimer (03/01/24)
+- Pleasantville (03/02/24)
+- Tár (03/02/24)
+- The Founder (03/05/24)
+- Wonka (03/05/24)
+- Dirty Dancing (03/05/24)
+- The Pianist (03/06/24)
+- The Disaster Artist (03/06/24)
+- Citizen Kane (03/06/24)
+- Jurassic Park (03/06/24)
+
 ### February 2024
 - Shattered Glass (02/01/24)
 - Past Lives (02/01/24)
