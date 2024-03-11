@@ -15,6 +15,8 @@
 - The Disaster Artist (03/06/24)
 - Citizen Kane (03/06/24)
 - Jurassic Park (03/06/24)
+- Dream Scenario (03/09/24)
+- Poor Things (03/10/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
