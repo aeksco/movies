@@ -15,6 +15,7 @@
 - The Disaster Artist (03/06/24)
 - Citizen Kane (03/06/24)
 - Jurassic Park (03/06/24)
+- A Glitch in the Matrix (03/07/24)
 - Dream Scenario (03/09/24)
 - Poor Things (03/10/24)
 
