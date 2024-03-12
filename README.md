@@ -19,6 +19,7 @@
 - Anatomy of a Fall (03/08/24)
 - Dream Scenario (03/09/24)
 - Poor Things (03/10/24)
+- 500 Days of Summer (03/11/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
