@@ -20,6 +20,7 @@
 - Dream Scenario (03/09/24)
 - Poor Things (03/10/24)
 - 500 Days of Summer (03/11/24)
+- Pretty Woman (03/12/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
