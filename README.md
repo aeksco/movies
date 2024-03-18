@@ -28,6 +28,8 @@
 - South Park: Bigger, Longer & Uncut (03/15/24)
 - Deadpool (03/15/24)
 - Past Lives (03/15/24)
+- V For Vendetta (03/17/24)
+- May December (03/17/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
