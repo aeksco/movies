@@ -30,6 +30,8 @@
 - Past Lives (03/15/24)
 - V For Vendetta (03/17/24)
 - May December (03/17/24)
+- American Fiction (03/24/24)
+- Squaring the Circle - The Story of Hipgnosis (03/24/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
