@@ -4,6 +4,9 @@
 
 ---
 
+### April 2024
+- Yesterday (04/01/24)
+
 ### March 2024
 - Oppenheimer (03/01/24)
 - Pleasantville (03/02/24)
@@ -32,6 +35,12 @@
 - May December (03/17/24)
 - American Fiction (03/24/24)
 - Squaring the Circle - The Story of Hipgnosis (03/24/24)
+- Behind Enemy Lines (03/26/24)
+- Titanic (03/27/24)
+- Oppenheimer (03/28/24)
+- Independence Day (03/29/24)
+- Kill Bill - The Whole Bloody Afair (03/30/24)
+- 1917 (03/31/24)
 
 ### February 2024
 - Shattered Glass (02/01/24)
