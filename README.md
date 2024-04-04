@@ -8,6 +8,7 @@
 - Yesterday (04/01/24)
 - Tommy Boy (04/01/24)
 - KPAX (04/02/24)
+- Aladdin (04/02/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
