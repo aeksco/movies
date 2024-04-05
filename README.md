@@ -9,6 +9,8 @@
 - Tommy Boy (04/01/24)
 - KPAX (04/02/24)
 - Aladdin (04/02/24)
+- Room 237 (04/04/24)
+- Batman Begins (04/04/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
