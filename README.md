@@ -12,6 +12,7 @@
 - Room 237 (04/04/24)
 - Batman Begins (04/04/24)
 - Beauty and the Beast (04/05/24)
+- Hot Rod (04/05/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
