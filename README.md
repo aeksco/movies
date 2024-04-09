@@ -11,8 +11,12 @@
 - Aladdin (04/02/24)
 - Room 237 (04/04/24)
 - Batman Begins (04/04/24)
-- Beauty and the Beast (04/05/24)
-- Hot Rod (04/05/24)
+- Beauty and the Beast (04/06/24)
+- Hot Rod (04/06/24)
+- Jumanji (04/07/24)
+- Not Another Teen Movie (04/07/24)
+- Nate Bargatze: Hello World! (04/07/24)
+- Bring It On (04/07/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
