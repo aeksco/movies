@@ -17,6 +17,9 @@
 - Not Another Teen Movie (04/07/24)
 - Nate Bargatze: Hello World! (04/07/24)
 - Bring It On (04/07/24)
+- Casper (04/08/24)
+- BASEketball (04/09/24)
+- Wayne's World (04/10/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
