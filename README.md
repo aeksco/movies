@@ -20,6 +20,11 @@
 - Casper (04/08/24)
 - BASEketball (04/09/24)
 - Wayne's World (04/10/24)
+- Sully (04/13/24)
+- American Fiction (04/13/24)
+- Shattered Glass (04/13/24)
+- Silver Linings Playbook (04/14/24)
+- Honey, I Shrunk the Kids (04/15/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
