@@ -25,6 +25,8 @@
 - Shattered Glass (04/13/24)
 - Silver Linings Playbook (04/14/24)
 - Honey, I Shrunk the Kids (04/15/24)
+- The Wizard of Oz (04/17/24)
+- Titanic (04/17/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
