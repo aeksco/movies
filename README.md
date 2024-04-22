@@ -25,8 +25,19 @@
 - Shattered Glass (04/13/24)
 - Silver Linings Playbook (04/14/24)
 - Honey, I Shrunk the Kids (04/15/24)
+- Hustlers (04/15/24)
+- Scoop (04/16/24)
+- Napoleon (04/16/24)
 - The Wizard of Oz (04/17/24)
 - Titanic (04/17/24)
+- The Hobbit (1977) (04/18/24)
+- The Lord of the Rings: The Fellowship of the Ring Extended Edition (04/21/24)
+- The Hobbit: An Unexpected Journey (04/21/24)
+- The Lord of the Rings: The Two Towers Extended Edition (04/21/24)
+- The Hobbit: The Desolation of Smaug (04/22/24)
+  
+- The Lord of the Rings: The Return of the King Extended Edition (04/XX/24)
+- The Hobbit: The Battle of the Five Armies (04/XX/24)
 
 ### March 2024
 - Oppenheimer (03/01/24)
