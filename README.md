@@ -35,8 +35,7 @@
 - The Hobbit: An Unexpected Journey (04/21/24)
 - The Lord of the Rings: The Two Towers Extended Edition (04/21/24)
 - The Hobbit: The Desolation of Smaug (04/22/24)
-  
-- The Lord of the Rings: The Return of the King Extended Edition (04/XX/24)
+- The Lord of the Rings: The Return of the King Extended Edition (04/22/24)
 - The Hobbit: The Battle of the Five Armies (04/XX/24)
 
 ### March 2024
