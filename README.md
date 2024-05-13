@@ -4,6 +4,13 @@
 
 ---
 
+### May 2024
+- The Producers (05/06/24)
+- The Big Short (05/07/24)
+- Mad Max: Fury Road (05/10/24)
+- Super Mario Bros. Movie (05/11/24)
+- Bowfinger (05/13/24)
+
 ### April 2024
 - Yesterday (04/01/24)
 - Tommy Boy (04/01/24)
