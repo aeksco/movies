@@ -14,6 +14,8 @@
 - Interstellar (05/16/24)
 - Crazy, Stupid, Love (05/16/24)
 - Orange County (05/17/24)
+- Legally Blonde (05/17/24)
+- Bruce Almighty (05/18/24)
 
 ### April 2024
 - Yesterday (04/01/24)
