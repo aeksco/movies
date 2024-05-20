@@ -16,6 +16,8 @@
 - Orange County (05/17/24)
 - Legally Blonde (05/17/24)
 - Bruce Almighty (05/18/24)
+- Spideman (05/19/24)
+- Unbreakable (05/20/24)
 
 ### April 2024
 - Yesterday (04/01/24)
