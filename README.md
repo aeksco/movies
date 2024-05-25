@@ -16,9 +16,16 @@
 - Orange County (05/17/24)
 - Legally Blonde (05/17/24)
 - Bruce Almighty (05/18/24)
-- Spideman (05/19/24)
+- Spiderman (05/19/24)
 - Unbreakable (05/20/24)
 - The Last Emperor (05/21/24)
+- Spiderman 2 (05/22/24)
+- The Animatrix (05/22/24)
+- The Last Emperor (05/23/25)
+- Legally Blonde (05/23/25)
+- Best In Show (05/23/25)
+- Waiting for Guffman (05/24/25)
+- Bedazzled (05/2425)
 
 ### April 2024
 - Yesterday (04/01/24)
