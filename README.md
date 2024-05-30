@@ -25,7 +25,17 @@
 - Legally Blonde (05/23/25)
 - Best In Show (05/23/25)
 - Waiting for Guffman (05/24/25)
-- Bedazzled (05/2425)
+- Bedazzled (05/24/25)
+- Billy Madison (05/25/25)
+- Princess Mononoke (05/25/25)
+- Ace Ventura - Pet Detective (05/26/25)
+- Liar Liar (05/26/25)
+- Birdman (05/27/25)
+- Multiplicity (05/27/25)
+- The Beach Boys (05/28/25)
+- Love and Mercy (05/29/25)
+- Superbad (05/29/25)
+- Ace Ventura - When Nature Calls (05/30/24)
 
 ### April 2024
 - Yesterday (04/01/24)
