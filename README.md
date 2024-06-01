@@ -4,6 +4,9 @@
 
 ---
 
+### June 2024
+- Civil War (06/01/24)
+
 ### May 2024
 - The Producers (05/06/24)
 - The Big Short (05/07/24)
