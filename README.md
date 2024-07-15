@@ -9,6 +9,7 @@
 - 28 Days Later (07/14/24)
 - 28 Weeks Later (07/14/24)
 - KPAX (07/15/24)
+- Jack (07/15/24)
 
 ### June 2024
 - Civil War (06/01/24)
