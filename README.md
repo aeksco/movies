@@ -6,12 +6,16 @@
 
 ### July 2024
 - American Beauty (07/11/24)
+- 28 Days Later (07/14/24)
+- 28 Weeks Later (07/14/24)
 - KPAX (07/15/24)
 
 ### June 2024
 - Civil War (06/01/24)
 - Showtime (06/01/24)
 - Rat Race (06/02/24)
+- Mrs. Doubtfire (06/12/24)
+- Batman Begins (06/13/24)
 - Star Wars: A New Hope (06/29/24)
 - Oppenheimer (06/29/24)
 
