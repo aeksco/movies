@@ -4,10 +4,16 @@
 
 ---
 
+### July 2024
+- American Beauty (07/11/24)
+- KPAX (07/15/24)
+
 ### June 2024
 - Civil War (06/01/24)
 - Showtime (06/01/24)
 - Rat Race (06/02/24)
+- Star Wars: A New Hope (06/29/24)
+- Oppenheimer (06/29/24)
 
 ### May 2024
 - The Producers (05/06/24)
