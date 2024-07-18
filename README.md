@@ -11,6 +11,7 @@
 - KPAX (07/15/24)
 - Jack (07/15/24)
 - What Dreams May Come (07/17/24)
+- Tar (07/18/24)
 
 ### June 2024
 - Civil War (06/01/24)
