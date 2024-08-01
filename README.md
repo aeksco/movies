@@ -4,6 +4,9 @@
 
 ---
 
+### August 2024
+- Bicentennial Man (08/01/24)
+
 ### July 2024
 - American Beauty (07/11/24)
 - 28 Days Later (07/14/24)
