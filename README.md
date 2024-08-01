@@ -16,6 +16,7 @@
 - Surf Ninjas (07/21/24)
 - The Lord of the Rings: The Fellowship of the Ring Extended Edition (07/25/24)
 - Aladdin (07/25/24)
+- Cast Away (07/30/24)
 
 ### June 2024
 - Civil War (06/01/24)
