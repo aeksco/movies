@@ -6,6 +6,12 @@
 
 ### August 2024
 - Bicentennial Man (08/01/24)
+- That Thing You Do! (08/09/24)
+- Back to the Future (08/10/24)
+- The Last Emperor (08/10/24)
+- Apollo 13 (08/12/24)
+- Bowfinger (08/12/24)
+- Hidden Figures (08/13/24)
 
 ### July 2024
 - American Beauty (07/11/24)
