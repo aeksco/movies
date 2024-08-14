@@ -6,6 +6,7 @@
 
 ### August 2024
 - Bicentennial Man (08/01/24)
+- Oppenheimer (08/07/24)
 - Best in Show (08/08/24)
 - That Thing You Do! (08/09/24)
 - Back to the Future (08/10/24)
@@ -14,6 +15,9 @@
 - Apollo 13 (08/12/24)
 - Bowfinger (08/12/24)
 - Hidden Figures (08/13/24)
+- Office Space (08/13/24)
+- Tetris (08/14/24)
+- Hamlet (RSC - 2009) (08/14/24)
 
 ### July 2024
 - American Beauty (07/11/24)
