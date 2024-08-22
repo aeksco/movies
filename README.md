@@ -20,6 +20,7 @@
 - Hamlet (RSC - 2009) (08/14/24)
 - Alien Covenant (08/21/24)
 - Don't Look Up (08/21/24)
+- Deadpool 2 (08/21/24)
 
 ### July 2024
 - American Beauty (07/11/24)
