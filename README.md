@@ -4,6 +4,30 @@
 
 ---
 
+### October 2024
+- Napoleon (10/04/24)
+- Speed Racer (10/05/24)
+- Oppenheimer (10/06/24)
+- Batman Begins (10/07/24)
+- Shattered Glass (10/08/24)
+- The Truman Show (10/09/24)
+- Pleasantville (10/10/24)
+- The Aviator (10/10/24)
+- Eric Brockovich (10/11/24)
+- Gosford Park (10/12/24)
+- Chicken Run (10/13/24)
+- Hellboy (10/14/24)
+- The Machinist (10/15/24)
+- The Princess Diaries (10/19/24)
+- The Nightmare Before Christmas (10/19/24)
+- Airplane (10/21/24)
+- Killers of the Flower Moon (10/23/24)
+- The Mummy (10/28/24)
+- Whiplash (10/29/24)
+- American Psycho (10/29/24)
+- Flight (10/30/24)
+- The Last Emperor (10/30/24)
+
 ### August 2024
 - Bicentennial Man (08/01/24)
 - Oppenheimer (08/07/24)
