@@ -4,6 +4,9 @@
 
 ---
 
+### November 2024
+- My Fair Lady (11/01/2024)
+
 ### October 2024
 - Napoleon (10/04/24)
 - Speed Racer (10/05/24)
