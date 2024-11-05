@@ -10,6 +10,8 @@
 - Mary Poppins (11/02/2024)
 - Swing Time (11/02/2024)
 - Elysium (11/04/2024)
+- The Core (11/04/2024)
+- The Imposter (11/05/2024)
 
 ### October 2024
 - Napoleon (10/04/24)
