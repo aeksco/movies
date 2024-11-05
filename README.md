@@ -6,6 +6,10 @@
 
 ### November 2024
 - My Fair Lady (11/01/2024)
+- The Sound of Music (11/01/2024)
+- Mary Poppins (11/02/2024)
+- Swing Time (11/02/2024)
+- Elysium (11/04/2024)
 
 ### October 2024
 - Napoleon (10/04/24)
