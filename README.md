@@ -13,6 +13,7 @@
 - The Core (11/04/2024)
 - The Imposter (11/05/2024)
 - Oppenheimer (11/05/2024)
+- The Truman Show (11/20/2024)
 
 ### October 2024
 - Napoleon (10/04/24)
