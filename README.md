@@ -18,6 +18,7 @@
 - Twisters (11/20/2024)
 - Eyes Wide Shut (11/21/2024)
 - Shattered Glass (11/21/2024)
+- Aliens (11/21/2024)
 
 ### October 2024
 - Napoleon (10/04/24)
