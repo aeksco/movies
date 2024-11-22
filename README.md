@@ -13,6 +13,7 @@
 - The Core (11/04/2024)
 - The Imposter (11/05/2024)
 - Oppenheimer (11/05/2024)
+- Leon: The Professional (11/18/2024)
 - The Truman Show (11/20/2024)
 - 10 Cloverfield Lane (11/20/2024)
 - Twisters (11/20/2024)
