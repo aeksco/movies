@@ -4,6 +4,11 @@
 
 ---
 
+### December 2024
+- Wicked: Part 1 (12/01/2024)
+- Dirty Work (12/04/2024)
+- Star Wars: Return Of The Jedi (12/04/24)
+
 ### November 2024
 - My Fair Lady (11/01/2024)
 - The Sound of Music (11/01/2024)
@@ -22,6 +27,9 @@
 - Aliens (11/21/2024)
 - Fly Me To The Moon (11/25/2024)
 - Doubt (11/26/2024)
+- Star Wars: A New Hope (11/27/24)
+- Star Wars: The Empire Strikes Back (11/27/24)
+- Amadeus (11/30/2024)
 
 ### October 2024
 - Napoleon (10/04/24)
