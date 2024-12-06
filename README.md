@@ -9,6 +9,7 @@
 - Dirty Work (12/04/2024)
 - Star Wars: Return Of The Jedi (12/04/2024)
 - Too Funny to Fail: The Life & Death of The Dana Carvey Show (12/05/2024)
+- Star Wars: Ep. I - The Phantom Menace (12/05/2024)
 
 ### November 2024
 - My Fair Lady (11/01/2024)
