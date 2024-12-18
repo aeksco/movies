@@ -11,6 +11,13 @@
 - Too Funny to Fail: The Life & Death of The Dana Carvey Show (12/05/2024)
 - Star Wars: Ep. I - The Phantom Menace (12/05/2024)
 - The Grand Budapest Hotel (12/06/2024)
+- Star Wars: Ep. II - Attack of the Clones (12/07/2024)
+- Too Funny to Fail: The Life & Death of The Dana Carvey Show (12/08/2024)
+- Star Wars: Ep. III - Revenge of the Sith (12/14/2024)
+- Watchmen - Chapter 1 (12/15/2024)
+- Watchmen - Chapter 2 (12/16/2024)
+- Watchmen (12/17/2024)
+- Saving Private Ryan (12/18/2024)
 
 ### November 2024
 - My Fair Lady (11/01/2024)
