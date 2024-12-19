@@ -18,6 +18,7 @@
 - Watchmen - Chapter 2 (12/16/2024)
 - Watchmen (12/17/2024)
 - Saving Private Ryan (12/18/2024)
+- The Matrix (12/18/2024)
 
 ### November 2024
 - My Fair Lady (11/01/2024)
