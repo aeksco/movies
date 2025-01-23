@@ -4,6 +4,20 @@
 
 ---
 
+### January 2024
+
+- Tetris (01/05/2025)
+- The Others (01/10/2025)
+- The Queen (01/14/2025)
+- Babes (01/15/2025)
+- The Queen (01/16/2025)
+- Blackberry (01/23/2025)
+- Schindler's List (01/18/2025)
+- Sideways (01/19/2025)
+- Blackberry (01/21/2025)
+- Oppenheimer (01/22/2025)
+- Blackberry (01/23/2025)
+
 ### December 2024
 - Wicked: Part 1 (12/01/2024)
 - Dirty Work (12/04/2024)
