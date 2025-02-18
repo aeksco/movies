@@ -4,7 +4,25 @@
 
 ---
 
-### January 2024
+### February 2025
+- Wallace & Gromit: Vengeance Most Fowl (02/07/25)
+- Fantasia (02/08/25)
+- Inglourious Basterds (02/09/25)
+- Death Proof (02/10/25)
+- Wicked (02/11/25)
+- Oppenheimer (02/12/25)
+- The Irishman (02/13/25)
+- Blackberry (02/14/25)
+- Interstellar (02/14/25)
+- Steve Jobs (02/15/25)
+- Reservoir Dogs (02/16/25)
+- Ford v Ferrari (02/17/25)
+- Spectre (02/17/2025)
+- No Time to Die (02/17/2025)
+- Conclave (02/17/2025)
+- Sugarcane (02/18/2025)
+
+### January 2025
 
 - Tetris (01/05/2025)
 - The Others (01/10/2025)
