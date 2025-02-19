@@ -21,6 +21,7 @@
 - No Time to Die (02/17/2025)
 - Conclave (02/17/2025)
 - Sugarcane (02/18/2025)
+- Kingsman: The Secret Service (02/18/2025)
 
 ### January 2025
 
