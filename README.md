@@ -24,6 +24,8 @@
 - Kingsman: The Secret Service (02/18/2025)
 - The Program (02/19/2025)
 - Elton John: Never Too Late (02/19/2025)
+- Inside Out 2 (02/20/2025)
+- September 5 (02/21/2025)
 
 ### January 2025
 
