@@ -26,6 +26,9 @@
 - Elton John: Never Too Late (02/19/2025)
 - Inside Out 2 (02/20/2025)
 - September 5 (02/21/2025)
+- The Six Triple Eight (02/22/2025)
+- Memoir of a Snail (02/22/2025)
+- The Brutalist (02/23/2025)
 
 ### January 2025
 
