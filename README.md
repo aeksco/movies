@@ -31,6 +31,8 @@
 - The Brutalist (02/23/2025)
 - Sing Sing (02/24/2025)
 - No Other Land (02/24/2025)
+- Nosferatu (02/25/2025)
+- A Complete Unknown (02/25/2025)
 
 ### January 2025
 
