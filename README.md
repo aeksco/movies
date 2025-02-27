@@ -34,6 +34,7 @@
 - Nosferatu (02/25/2025)
 - A Complete Unknown (02/25/2025)
 - The Apprentice (02/26/2025)
+- The Substance (02/26/2025)
 
 ### January 2025
 
