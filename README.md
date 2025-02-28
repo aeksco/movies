@@ -9,7 +9,7 @@
 - Fantasia (02/08/25)
 - Inglourious Basterds (02/09/25)
 - Death Proof (02/10/25)
-- Wicked (02/11/25)
+- Wicked: Part 1 (02/11/25)
 - Oppenheimer (02/12/25)
 - The Irishman (02/13/25)
 - Blackberry (02/14/25)
