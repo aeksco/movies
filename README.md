@@ -4,6 +4,10 @@
 
 ---
 
+### March 2025
+- Nickel Boys (03/01/2025)
+- Flow (03/01/2025)
+
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
 - Fantasia (02/08/25)
@@ -35,6 +39,7 @@
 - A Complete Unknown (02/25/2025)
 - The Apprentice (02/26/2025)
 - The Substance (02/26/2025)
+- Anora (02/28/2025)
 
 ### January 2025
 
