@@ -7,6 +7,8 @@
 ### March 2025
 - Nickel Boys (03/01/2025)
 - Flow (03/01/2025)
+- Skyfall (03/03/2025)
+- The Substance (03/06/2025)
 
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
