@@ -10,6 +10,7 @@
 - Skyfall (03/03/2025)
 - The Substance (03/06/2025)
 - The Karate Kid (03/07/2025)
+- The Hateful Eight (03/07/2025)
 
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
