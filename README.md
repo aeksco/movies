@@ -15,6 +15,7 @@
 - The Brutalist (03/11/2025)
 - Conspiracy (03/12/2025)
 - Game Change (03/12/2025)
+- Paterno (03/13/2025)
 - The Wizard of Lies (03/13/2025)
 
 ### February 2025
