@@ -17,6 +17,8 @@
 - Game Change (03/12/2025)
 - Paterno (03/13/2025)
 - The Wizard of Lies (03/13/2025)
+- The Brutalist (03/14/2025)
+- Anora (03/15/2025)
 
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
