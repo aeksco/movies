@@ -19,6 +19,9 @@
 - The Wizard of Lies (03/13/2025)
 - The Brutalist (03/14/2025)
 - Anora (03/15/2025)
+- Everything, Everywhere, All At Once (03/16/2025)
+- The Ring (03/17/2025)
+- Bill Burr: Drop Dead Years (03/17/2025)
 
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
