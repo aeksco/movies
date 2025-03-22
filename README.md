@@ -22,6 +22,9 @@
 - Everything, Everywhere, All At Once (03/16/2025)
 - The Ring (03/17/2025)
 - Bill Burr: Drop Dead Years (03/17/2025)
+- The Matrix Reloaded (03/20/2025)
+- The Matrix Revolutions (03/20/2025)
+- The Substance (03/21/2025)
 
 ### February 2025
 - Wallace & Gromit: Vengeance Most Fowl (02/07/25)
