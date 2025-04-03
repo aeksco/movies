@@ -4,6 +4,10 @@
 
 ---
 
+### April 2025
+- Thank You Very Much (Andy Kaufman Documentary) (04/02/2025)
+- The Animatrix (04/03/2025)
+
 ### March 2025
 - Nickel Boys (03/01/2025)
 - Flow (03/01/2025)
