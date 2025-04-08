@@ -7,6 +7,12 @@
 ### April 2025
 - Thank You Very Much (Andy Kaufman Documentary) (04/02/2025)
 - The Animatrix (04/03/2025)
+- Monty Python & The Holy Grail (04/03/2025)
+- Step Brothers (04/04/2025)
+- Radiohead: In Rainbows (04/05/2025)
+- Queen: Rock Montreal (04/05/2025)
+- Snowpiercer (04/06/2025)
+- Love and Mercy (04/08/2025)
 
 ### March 2025
 - Nickel Boys (03/01/2025)
