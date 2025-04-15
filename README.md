@@ -13,6 +13,13 @@
 - Queen: Rock Montreal (04/05/2025)
 - Snowpiercer (04/06/2025)
 - Love and Mercy (04/08/2025)
+- That Thing You Do! (04/09/2025)
+- Groundhog Day (04/10/2025)
+- Blackberry (04/10/2025)
+- Cast Away (04/11/2025)
+- Titanic (04/11/2025)
+- Little Women (2019) (04/12/2025)
+- Brawl in Cell Block 99 (04/13/2025)
 
 ### March 2025
 - Nickel Boys (03/01/2025)
