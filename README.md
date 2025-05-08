@@ -4,6 +4,16 @@
 
 ---
 
+### May 2025
+- Conclave (05/01/2025)
+- Past Lives (05/02/2025)
+- Sully (2019) (05/03/2025)
+- Little Women (2019) (05/04/2025)
+- Too Funny to Fail (05/05/2025)
+- The Brutalist (05/06/2025)
+- Sgt. Bilko (05/07/2025)
+- Major Payne (05/08/2025)
+
 ### April 2025
 - Thank You Very Much (Andy Kaufman Documentary) (04/02/2025)
 - The Animatrix (04/03/2025)
@@ -20,6 +30,14 @@
 - Titanic (04/11/2025)
 - Little Women (2019) (04/12/2025)
 - Brawl in Cell Block 99 (04/13/2025)
+- Flight (04/15/2025)
+- The Aviator (04/16/2025)
+- Thank You Very Much (Andy Kaufman Documentary) (04/17/2025)
+- Grand Theft Hamlet (04/18/2025)
+- Titanic - The Digital Resurrection (04/19/2025)
+- The Foot Fist Way (04/20/2025)
+- The Dark Knight (04/21/2025)
+- Juno (04/30/2025)
 
 ### March 2025
 - Nickel Boys (03/01/2025)
