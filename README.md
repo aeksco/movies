@@ -28,6 +28,10 @@
 - Conclave (05/24/2025)
 - District 9 (05/24/2025)
 - Minority Report (05/25/2025)
+- Frost/Nixon (05/26/2025)
+- Eternal Sunshine of the Spotless Mind (05/27/2025)
+- Three Billboards Outside Ebbing Missouri (05/28/2025)
+- Companion (05/30/2025)
 
 ### April 2025
 - Thank You Very Much (Andy Kaufman Documentary) (04/02/2025)
