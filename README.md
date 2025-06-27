@@ -4,6 +4,22 @@
 
 ---
 
+### June 2025
+- The Two Popes (06/01/2025)
+- Star Wars: A New Hope (06/02/2025)
+- Friendship (06/04/2025)
+- Companion (06/05/2025)
+- Casino (06/07/2025)
+- Casino (06/09/2025)
+- Ford v Ferrari (06/10/2025)
+- Mad Max: Fury Road (06/11/2025)
+- Too Funny to Fail: The Life & Death of The Dana Carvey Show (06/12/2025)
+- John Mullaney - Kid Gorgeous (06/14/2025)
+- Materialists (06/20/2025)
+- Best In Show (06/26/2025)
+- Independence Day (06/27/2025)
+- Ocean's Eleven (06/27/2025)
+
 ### May 2025
 - Conclave (05/01/2025)
 - Past Lives (05/02/2025)
