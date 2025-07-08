@@ -5,8 +5,10 @@
 ---
 
 ### July 2025
+- Sing Sing (07/06/2025)
 - Dodgeball (07/07/2025)
 - Becoming Led Zeppelin (07/08/2025)
+- Frequency (07/08/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
