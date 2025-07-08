@@ -4,6 +4,10 @@
 
 ---
 
+### July 2025
+- Dodgeball (07/07/2025)
+- Becoming Led Zeppelin (07/08/2025)
+
 ### June 2025
 - The Two Popes (06/01/2025)
 - Star Wars: A New Hope (06/02/2025)
