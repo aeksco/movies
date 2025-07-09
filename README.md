@@ -5,10 +5,21 @@
 ---
 
 ### July 2025
+- Jerry Maguire (07/01/2025)
+- Bridesmaids (07/01/2025)
+- Corky Romano (07/02/2025)
+- Forgetting Sarah Marshall (07/02/2025)
+- The Wolf of Wall Street (07/03/2025)
+- The Big Lebowski (07/03/2025)
 - Sing Sing (07/06/2025)
 - Dodgeball (07/07/2025)
+- No Country for Old Men (07/07/2025)
 - Becoming Led Zeppelin (07/08/2025)
 - Frequency (07/08/2025)
+- The Other Guys (07/08/2025)
+- Baby Mama (07/08/2025)
+- Howl's Moving Castle (07/08/25)
+- Princess Mononoke (07/09/25)
 
 ### June 2025
 - The Two Popes (06/01/2025)
@@ -25,6 +36,9 @@
 - Best In Show (06/26/2025)
 - Independence Day (06/27/2025)
 - Ocean's Eleven (06/27/2025)
+- Friendship (06/29/2025)
+- Independence Day: Resurgence (06/30/2025)
+- 2012 (06/30/2025)
 
 ### May 2025
 - Conclave (05/01/2025)
