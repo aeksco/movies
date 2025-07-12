@@ -18,8 +18,11 @@
 - Frequency (07/08/2025)
 - The Other Guys (07/08/2025)
 - Baby Mama (07/08/2025)
-- Howl's Moving Castle (07/08/25)
-- Princess Mononoke (07/09/25)
+- Howl's Moving Castle (07/08/2025)
+- Princess Mononoke (07/09/2025)
+- Dunkirk (07/10/2025)
+- How To Train Your Dragon (2025) (07/11/2025)
+- Starship Troopers (07/11/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
