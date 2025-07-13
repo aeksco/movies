@@ -23,6 +23,7 @@
 - Dunkirk (07/10/2025)
 - How To Train Your Dragon (2025) (07/11/2025)
 - Starship Troopers (07/11/2025)
+- Juror #2 (07/12/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
