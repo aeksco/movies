@@ -24,6 +24,11 @@
 - How To Train Your Dragon (2025) (07/11/2025)
 - Starship Troopers (07/11/2025)
 - Juror #2 (07/12/2025)
+- Hunt for the Wilderpeople (07/14/2025)
+- Peter Pan Goes Weong (07/15/2025)
+- Hunt for the Wilderpeople (07/16/2025)
+- Zero Days (07/17/2025)
+- The 40 Year-Old Virgin (07/18/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
