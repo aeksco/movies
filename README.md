@@ -25,6 +25,7 @@
 - Starship Troopers (07/11/2025)
 - Juror #2 (07/12/2025)
 - Hunt for the Wilderpeople (07/14/2025)
+- Frequency (07/15/2025)
 - Peter Pan Goes Weong (07/15/2025)
 - Hunt for the Wilderpeople (07/16/2025)
 - Zero Days (07/17/2025)
