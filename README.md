@@ -30,6 +30,9 @@
 - Hunt for the Wilderpeople (07/16/2025)
 - Zero Days (07/17/2025)
 - The 40 Year-Old Virgin (07/18/2025)
+- The Mothman Prophecies (07/23/2025)
+- Apollo 11 (02/23/2025)
+- Bowling for Columbine (02/14/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
