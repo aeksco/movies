@@ -34,6 +34,8 @@
 - Apollo 11 (07/23/2025)
 - Bowling for Columbine (07/24/2025)
 - Ready Player One (07/24/2025)
+- Frances Ha (07/26/2025)
+- Challengers (07/26/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
