@@ -36,6 +36,7 @@
 - Ready Player One (07/24/2025)
 - Frances Ha (07/26/2025)
 - Challengers (07/26/2025)
+- Oppenheimer (07/27/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
