@@ -34,6 +34,7 @@
 - Apollo 11 (07/23/2025)
 - Bowling for Columbine (07/24/2025)
 - Ready Player One (07/24/2025)
+- Materialists (07/25/2025)
 - Howl's Moving Castle (07/26/2025)
 - Frances Ha (07/26/2025)
 - Challengers (07/26/2025)
