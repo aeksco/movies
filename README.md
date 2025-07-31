@@ -39,6 +39,9 @@
 - Frances Ha (07/26/2025)
 - Challengers (07/26/2025)
 - Oppenheimer (07/27/2025)
+- What We Do In The Shadows (07/30/2025)
+- The Wizard of Lies (07/30/2025)
+- Fahrenheit 9/11 (07/31/2025)
 
 ### June 2025
 - The Two Popes (06/01/2025)
