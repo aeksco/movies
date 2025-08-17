@@ -4,6 +4,19 @@
 
 ---
 
+
+### August 2025
+- Game Change (08/01/2025)
+- The Lord of the Rings: The Fellowship of the Ring Extended Edition (08/02/2025)
+- Get Out (08/04/2025)
+- 28 Years Later (08/06/2025)
+- Heaven Loves You (08/08/2025)
+- Flight (08/10/2025)
+- Doubt (08/10/2025)
+- Thirteen Days (08/12/2025)
+- The Mothman Prophecies (08/14/2025)
+- American History X (08/17/2025)
+
 ### July 2025
 - Jerry Maguire (07/01/2025)
 - Bridesmaids (07/01/2025)
