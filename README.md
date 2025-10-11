@@ -5,8 +5,23 @@
 ---
 
 ### October 2025
+- Toy Story 2 (10/xx/2025)
+- Toy Story 3 (10/xx/2025)
+- CODA (10/xx/2025)
+- WALL-E (10/09/2025)
+- Apollo 13 (10/09/2025)
 - Mother's Instinct (10/10/2025)
 - Nobody (10/10/2025)
+
+### September 2025
+- Harry Potter and the Chamber of Secrets (09/xx/2025)
+- Training Day (09/xx/2025)
+- The Patriot (09/xx/2025)
+- Belfast (09/xx/2025)
+- Watchmen: Chapter 1 (09/xx/2025)
+- Watchmen: Chapter 2 (09/xx/2025)
+- Election (09/xx/2025)
+- Apollo 11 (09/xx/2025)
 
 ### August 2025
 - Game Change (08/01/2025)
@@ -19,6 +34,21 @@
 - Thirteen Days (08/12/2025)
 - The Mothman Prophecies (08/14/2025)
 - American History X (08/17/2025)
+- Frost/Nixon (08/xx/2025)
+- Spotlight (08/xx/2025)
+- Memoirs of a Geisha (08/xx/2025)
+- Harry Potter and the Order of the Phoenix (08/xx/2025)
+- Harry Potter and the Half-Blooded Prince (08/xx/2025)
+- Harry Potter and the Dealthly Hallows Pt. 1 (08/xx/2025)
+- Harry Potter and the Dealthly Hallows Pt. 2 (08/xx/2025)
+- The Program (08/xx/2025)
+- The Matrix (08/xx/2025)
+- Inglorious Basterds (08/xx/2025)
+- Ex Machina (08/xx/2025)
+- Harry Potter and the Goblet of Fire (08/xx/2025)
+- Sully (08/xx/2025)
+- Harry Potter and the Prisoner of Azkaban (08/xx/2025)
+- The Aviator (08/30/2025)
 
 ### July 2025
 - Jerry Maguire (07/01/2025)
