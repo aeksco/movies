@@ -4,6 +4,9 @@
 
 ---
 
+### October 2025
+- Mother's Instinct (10/10/2025)
+- Nobody (10/10/2025)
 
 ### August 2025
 - Game Change (08/01/2025)
