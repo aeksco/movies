@@ -25,6 +25,10 @@
 - Annihilation (10/19/2025)
 - Anthony Jeselnik - Bones and All (10/18/2025)
 - Sicario (10/19/2025)
+- Sicario (10/20/2025)
+- NOPE (10/21/2025)
+- Titan: The OceanGate Disaster (10/22/2025)
+- Django Unchained (10/22/2025)
 
 ### September 2025
 - Harry Potter and the Chamber of Secrets (09/xx/2025)
