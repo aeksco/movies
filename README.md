@@ -29,6 +29,11 @@
 - NOPE (10/21/2025)
 - Titan: The OceanGate Disaster (10/22/2025)
 - Django Unchained (10/22/2025)
+- Forrest Gump (10/23/2025)
+- Death at a Funeral (10/24/2025)
+- Blackberry (10/25/2025)
+- The Beekeeper (10/26/2025)
+- Quiz Show (10/27/2025)
 
 ### September 2025
 - Harry Potter and the Chamber of Secrets (09/xx/2025)
