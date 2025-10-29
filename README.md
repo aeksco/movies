@@ -34,6 +34,11 @@
 - Blackberry (10/25/2025)
 - The Beekeeper (10/26/2025)
 - Quiz Show (10/27/2025)
+- Inception (10/28/2025)
+- Toy Story (10/28/2025)
+- 300 (10/28/2025)
+- Superman (2025) (10/29/2025)
+- Secret Window (10/29/2025)
 
 ### September 2025
 - Harry Potter and the Chamber of Secrets (09/xx/2025)
