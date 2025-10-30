@@ -39,6 +39,7 @@
 - 300 (10/28/2025)
 - Superman (2025) (10/29/2025)
 - Secret Window (10/29/2025)
+- Stand By Me (10/29/2025)
 
 ### September 2025
 - Harry Potter and the Chamber of Secrets (09/xx/2025)
