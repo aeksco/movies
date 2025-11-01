@@ -40,6 +40,10 @@
 - Superman (2025) (10/29/2025)
 - Secret Window (10/29/2025)
 - Stand By Me (10/29/2025)
+- A House of Dynamite (10/30/2025)
+- The Lighthouse (10/30/2025)
+- Predator (10/31/2025)
+- Monty Python's The Meaning of Life (10/31/2025)
 
 ### September 2025
 - Harry Potter and the Chamber of Secrets (09/xx/2025)
