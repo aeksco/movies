@@ -4,6 +4,9 @@
 
 ---
 
+### November 2025
+- Lincoln (11/01/2025)
+
 ### October 2025
 - Toy Story 2 (10/xx/2025)
 - Toy Story 3 (10/xx/2025)
