@@ -7,6 +7,7 @@
 ### November 2025
 - Lincoln (11/01/2025)
 - The Beguiled (11/02/2025)
+- Mickey 17 (11/03/2025)
 
 ### October 2025
 - Toy Story 2 (10/xx/2025)
