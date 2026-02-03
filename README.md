@@ -4,11 +4,58 @@
 
 ---
 
+### February 2026
+- Blue Moon (02/01/2025)
+- Titan: The OceanGate Disaster (02/01/2026)
+- The Number 23 (02/03/2025)
+
+### January 2026
+- Star Wars: The Empire Strikes Back (01/xx/2026)
+- One Hour Photo (01/xx/2026)
+- Star Wars: The Force Awakens (01/xx/2026)
+- Austin Powers: International Man of Mystery (01/xx/2026)
+- Ford v Ferrari (01/xx/2026)
+- Star Wars: Ep. I - The Phantom Menace (01/xx/2026)
+- Star Wars: The Last Jedi (01/xx/2026)
+- Wicked: For Good (01/xx/2026)
+- Catch Me If You Can (01/xx/2026)
+- Uncut Gems (01/xx/2026)
+- Cast Away (01/xx/2025)
+- One Battle After Another (01/xx/2026)
+- The Hobbit: An Unexpected Journey Extended Edition (01/xx/2026)
+- The Hobbit: The Desolation of Smaug (01/xx/2026)
+- The Hobbit: The Battle of the Five Armies (01/XX/2026)
+- The Hobbit (1977) (01/xx/2026)
+- Star Wars: The Rise of Skywalker (01/xx/2026)
+- U-571 (01/xx/2026)
+- Blue Moon (01/31/2025)
+
+### December 2025
+- One Battle After Another (12/xx/2025)
+- Star Wars: Ep. II - Attack of the Clones (12/xx/2025)
+- Star Wars: Ep. III - Revenge of the Sith (12/xx/2025)
+- The Italian Job (12/xx/2025)
+- Superman (2025) (12/xx/2025)
+- It's a Wonderful Life (12/xx/2025)
+- Austin Powers in Goldmember (12/xx/2025)
+- Ratatouille (12/xx/2025)
+- Little Women (12/xx/2025)
+- Lincoln (12/xx/2025)
+
+
 ### November 2025
 - Lincoln (11/01/2025)
 - The Beguiled (11/02/2025)
 - Mickey 17 (11/03/2025)
 - Oppenheimer (11/04/2025)
+- Inception (11/xx/2025)
+- Roofman (11/xx/2025)
+- Blackberry (11/xx/2025)
+- A House of Dynamite (11/xx/2025)
+- The Age of Disclosure (11/xx/2025)
+- Austin Powers: The Spy Who Shagged Me (11/xx/2025)
+- 12 Years a Slave (11/xx/2025)
+- One Battle After Another (11/xx/2025)
 
 ### October 2025
 - Toy Story 2 (10/xx/2025)
@@ -60,6 +107,7 @@
 - Watchmen: Chapter 2 (09/xx/2025)
 - Election (09/xx/2025)
 - Apollo 11 (09/xx/2025)
+- One Battle After Another (09/xx/2025)
 
 ### August 2025
 - Game Change (08/01/2025)
