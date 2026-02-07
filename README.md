@@ -8,6 +8,9 @@
 - Blue Moon (02/01/2025)
 - Titan: The OceanGate Disaster (02/01/2026)
 - The Number 23 (02/03/2025)
+- The Menu (02/03/2025)
+- The Menu (02/04/2025)
+- Eastern Promises (02/06/2025)
 
 ### January 2026
 - Star Wars: The Empire Strikes Back (01/xx/2026)
