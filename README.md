@@ -5,12 +5,13 @@
 ---
 
 ### February 2026
-- Blue Moon (02/01/2025)
+- Blue Moon (02/01/2026)
 - Titan: The OceanGate Disaster (02/01/2026)
-- The Number 23 (02/03/2025)
-- The Menu (02/03/2025)
-- The Menu (02/04/2025)
-- Eastern Promises (02/06/2025)
+- The Number 23 (02/03/2026)
+- The Menu (02/03/2026)
+- The Menu (02/04/2026)
+- Eastern Promises (02/06/2026)
+- Before the Devil Knows You're Dead (02/06/2026)
 
 ### January 2026
 - Star Wars: The Empire Strikes Back (01/xx/2026)
@@ -23,7 +24,7 @@
 - Wicked: For Good (01/xx/2026)
 - Catch Me If You Can (01/xx/2026)
 - Uncut Gems (01/xx/2026)
-- Cast Away (01/xx/2025)
+- Cast Away (01/xx/2026)
 - One Battle After Another (01/xx/2026)
 - The Hobbit: An Unexpected Journey Extended Edition (01/xx/2026)
 - The Hobbit: The Desolation of Smaug (01/xx/2026)
@@ -31,7 +32,7 @@
 - The Hobbit (1977) (01/xx/2026)
 - Star Wars: The Rise of Skywalker (01/xx/2026)
 - U-571 (01/xx/2026)
-- Blue Moon (01/31/2025)
+- Blue Moon (01/31/2026)
 
 ### December 2025
 - One Battle After Another (12/xx/2025)
