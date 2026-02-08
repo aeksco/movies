@@ -12,6 +12,7 @@
 - The Menu (02/04/2026)
 - Eastern Promises (02/06/2026)
 - Before the Devil Knows You're Dead (02/06/2026)
+- Get Out (02/06/2026)
 - Fantastic Mr. Fox (02/07/2026)
 - The Grand Budapest Hotel (02/07/2026)
 
