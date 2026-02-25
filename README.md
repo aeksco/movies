@@ -15,6 +15,13 @@
 - Get Out (02/06/2026)
 - Fantastic Mr. Fox (02/07/2026)
 - The Grand Budapest Hotel (02/07/2026)
+- Life of Pi (02/19/2026)
+- World War Z (02/20/2026)
+- Marty Supreme (02/21/2026)
+- Under the Silver Lake (02/22/2026)
+- Denial (02/23/2026)
+- Train Dreams (02/24/2026)
+- Contagion (02/25/2026)
 
 ### January 2026
 - Star Wars: The Empire Strikes Back (01/xx/2026)
