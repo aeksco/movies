@@ -22,6 +22,8 @@
 - Denial (02/23/2026)
 - Train Dreams (02/24/2026)
 - Contagion (02/25/2026)
+- Blue Moon (02/25/2026)
+- Stand and Deliver (02/25/2026)
 
 ### January 2026
 - Star Wars: The Empire Strikes Back (01/xx/2026)
