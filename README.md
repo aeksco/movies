@@ -4,6 +4,9 @@
 
 ---
 
+### March 2026
+- F1: The Movie (03/02/2026)
+
 ### February 2026
 - Blue Moon (02/01/2026)
 - Titan: The OceanGate Disaster (02/01/2026)
@@ -24,6 +27,7 @@
 - Contagion (02/25/2026)
 - Blue Moon (02/25/2026)
 - Stand and Deliver (02/25/2026)
+- John Candy: I Like Me (02/27/2026)
 
 ### January 2026
 - Star Wars: The Empire Strikes Back (01/xx/2026)
