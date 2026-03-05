@@ -6,6 +6,10 @@
 
 ### March 2026
 - F1: The Movie (03/02/2026)
+- Aladdin (03/03/2026)
+- Frankenstein (03/04/2026)
+- 28 Years Later (03/04/2026)
+- Weapons (03/05/2026)
 
 ### February 2026
 - Blue Moon (02/01/2026)
