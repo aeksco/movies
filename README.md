@@ -4,12 +4,35 @@
 
 ---
 
+### April 2026
+- Interstellar (04/01/2026)
+- A House of Dynamite (04/03/2026)
+- The Queen (04/05/2026)
+- The Martian (04/06/2026)
+- S4: The Bob Lazar Story (04/07/2026)
+- Ruby Sparks (04/08/2026)
+
 ### March 2026
 - F1: The Movie (03/02/2026)
 - Aladdin (03/03/2026)
 - Frankenstein (03/04/2026)
 - 28 Years Later (03/04/2026)
 - Weapons (03/05/2026)
+- Bugonia (03/2026)
+- Quick Show (03/2026)
+- American Hustle (03/2026)
+- The Menu (03/2026)
+- Zero Day (03/2026)
+- Oppenheimer (03/2026)
+- Don't Look Up (03/2026)
+- Argo (03/2026)
+- Titanic (03/2026)
+- The Big Short (03/2026)
+- The Irishman (03/2026)
+- Marty Supreme (03/2026)
+- Minority Report (03/2026)
+- Jurassic Park (03/2026)
+- O Brother, Where Art Thou? (03/30/2026)
 
 ### February 2026
 - Blue Moon (02/01/2026)
