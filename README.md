@@ -12,6 +12,7 @@
 - The Martian (04/06/2026)
 - S4: The Bob Lazar Story (04/07/2026)
 - Ruby Sparks (04/08/2026)
+- The Prince of Egypt (04/08/2026)
 
 ### March 2026
 - F1: The Movie (03/02/2026)
