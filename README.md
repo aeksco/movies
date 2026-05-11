@@ -8,6 +8,7 @@
 - Eyes Wide Shut (05/01/2026)
 - Tar (05/02/2026)
 - The Other Guys (05/03/2026)
+- Interstellar (05/02/2026)
 - Pirates of the Caribbean: The Curse of the Black Pearl (05/05/2026)
 - Arrival (05/06/2026)
 - Project Hail Mary (05/06/2026)
