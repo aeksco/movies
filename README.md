@@ -4,6 +4,15 @@
 
 ---
 
+### May 2026
+- Eyes Wide Shut (05/01/2026)
+- Tar (05/02/2026)
+- The Other Guys (05/03/2026)
+- Pirates of the Caribbean: The Curse of the Black Pearl (05/05/2026)
+- Project Hail Mary (05/06/2026)
+- Paterno (05/08/2026)
+- Frost/Nixon (05/11/2026)
+
 ### April 2026
 - Interstellar (04/01/2026)
 - Blackberry (04/01/2026)
@@ -11,12 +20,22 @@
 - The Queen (04/05/2026)
 - The Martian (04/06/2026)
 - S4: The Bob Lazar Story (04/07/2026)
+- The Beekeeper (04/07/2026)
 - Ruby Sparks (04/08/2026)
 - The Prince of Egypt (04/08/2026)
 - The Prince of Egypt (04/09/2026)
 - Ruby Sparks (04/10/2026)
 - Game Change (04/13/2026)
 - Slackers (04/14/2026)
+- Zoolander (04/15/2026)
+- Funny Girl (04/18/2026)
+- The World's Fastest Indian (04/19/2026)
+- No Country for Old Men (04/20/2026)
+- Quiz Show (04/21/2026)
+- Mark Normand: None Too Pleased (04/21/2026)
+- Aladdin (04/21/2026)
+- A House of Dynamite (04/22/2026)
+- Game Change (04/23/2026)
 
 ### March 2026
 - F1: The Movie (03/02/2026)
