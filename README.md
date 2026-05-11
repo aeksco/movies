@@ -39,6 +39,7 @@
 - Aladdin (04/21/2026)
 - A House of Dynamite (04/22/2026)
 - Game Change (04/23/2026)
+- Oppenheimer (04/24/2026)
 
 ### March 2026
 - F1: The Movie (03/02/2026)
