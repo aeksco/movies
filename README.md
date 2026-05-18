@@ -16,6 +16,8 @@
 - Frost/Nixon (05/11/2026)
 - Alien: Romulus (05/11/2026)
 - Carts of Darkness (05/11/2026)
+- Michael (05/16/2026)
+- The Dark Knight (05/18/2026)
 
 ### April 2026
 - Interstellar (04/01/2026)
