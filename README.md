@@ -18,6 +18,12 @@
 - Carts of Darkness (05/11/2026)
 - Michael (05/16/2026)
 - The Dark Knight (05/18/2026)
+- X-Men (05/22/2026)
+- Troy (05/22/2026)
+- Obsession (05/22/2026)
+- Don't Look Up (05/25/2026)
+- Judas and the Black Messiah (05/26/2026)
+- Backrooms (05/29/2026)
 
 ### April 2026
 - Interstellar (04/01/2026)
