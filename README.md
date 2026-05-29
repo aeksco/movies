@@ -23,7 +23,8 @@
 - Obsession (05/22/2026)
 - Don't Look Up (05/25/2026)
 - Judas and the Black Messiah (05/26/2026)
-- Backrooms (05/29/2026)
+- Backrooms (05/28/2026)
+- The Money Pit (05/29/2026)
 
 ### April 2026
 - Interstellar (04/01/2026)
