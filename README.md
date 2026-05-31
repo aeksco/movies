@@ -25,6 +25,9 @@
 - Judas and the Black Messiah (05/26/2026)
 - Backrooms (05/28/2026)
 - The Money Pit (05/29/2026)
+- 007 - Tomorrow Never Dies (05/30/2026)
+- Inception (05/30/2026)
+- Josie and the Pussycats (05/30/2026)
 
 ### April 2026
 - Interstellar (04/01/2026)
