@@ -6,6 +6,9 @@
 
 ### June 2026
 - Sideways (06/03/2026)
+- Sideways (06/04/2026)
+- The Exorcist of Emily Rose (06/07/2026)
+- Raiders of the Lost Ark (06/08/2026)
 
 ### May 2026
 - Eyes Wide Shut (05/01/2026)
