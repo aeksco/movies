@@ -9,6 +9,17 @@
 - Sideways (06/04/2026)
 - The Exorcist of Emily Rose (06/07/2026)
 - Raiders of the Lost Ark (06/08/2026)
+- Austin Powers: International Man of Mystery (06/10/2026)
+- The Conspirator (06/11/2026)
+- A Few Good Men (06/12/2026)
+- Disclosure Day (06/13/2026)
+- Blackberry (06/13/2026)
+- Willy Wonka & The Chocolate Factory (06/15/2026)
+- Quiz Show (06/17/2026)
+- Kill the Messenger (06/18/2026)
+- The Bourne Identity (06/19/2026)
+- Nirvana: The Band - The Show - The Movie (06/20/2026)
+- Nirvana: The Band - The Show - The Movie (06/22/2026)
 
 ### May 2026
 - Eyes Wide Shut (05/01/2026)
