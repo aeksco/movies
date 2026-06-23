@@ -20,6 +20,7 @@
 - The Bourne Identity (06/19/2026)
 - Nirvana: The Band - The Show - The Movie (06/20/2026)
 - Nirvana: The Band - The Show - The Movie (06/22/2026)
+- The Social Network (06/23/2026)
 
 ### May 2026
 - Eyes Wide Shut (05/01/2026)
