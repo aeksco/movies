@@ -21,6 +21,11 @@
 - Nirvana: The Band - The Show - The Movie (06/20/2026)
 - Nirvana: The Band - The Show - The Movie (06/22/2026)
 - The Social Network (06/23/2026)
+- Shattered Glass (06/26/2026)
+- I Love Boosters (06/26/2026)
+- O Brother, Where Art Thou? (06/27/2026)
+- Steve Jobs (06/27/2026)
+- The Aviator (06/30/2026)
 
 ### May 2026
 - Eyes Wide Shut (05/01/2026)
