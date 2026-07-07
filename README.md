@@ -4,6 +4,10 @@
 
 ---
 
+### July 2026
+- Before Sunrise (07/06/2026)
+- Pressure (07/06/2026)
+
 ### June 2026
 - Sideways (06/03/2026)
 - Sideways (06/04/2026)
