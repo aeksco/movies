@@ -9,6 +9,7 @@
 - Pressure (07/06/2026)
 - Pressure (07/07/2026)
 - Hokum (07/07/2026)
+- Nirvana: The Band - The Show - The Movie (07/08/2026)
 
 ### June 2026
 - Sideways (06/03/2026)
