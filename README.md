@@ -11,6 +11,12 @@
 - Hokum (07/07/2026)
 - Nirvana: The Band - The Show - The Movie (07/08/2026)
 - They Shall Not Grow Old (07/09/2026)
+- Oasis: Supersonic (07/10/2026)
+- Interstellar (07/10/2026)
+- Dunkirk (07/11/2026)
+- Catch Me If You Can (07/13/2026)
+- Nirvana: The Band - The Show - The Movie (07/14/2026)
+- Nirvana: The Band - The Show - The Movie (07/15/2026)
 
 ### June 2026
 - Sideways (06/03/2026)
