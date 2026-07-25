@@ -19,6 +19,8 @@
 - Nirvana: The Band - The Show - The Movie (07/15/2026)
 - Armageddon (07/16/2026)
 - The Odyssey (07/17/2026)
+- Quiz Show (07/24/2026)
+- The King's Speech (07/25/2026)
 
 ### June 2026
 - Sideways (06/03/2026)
