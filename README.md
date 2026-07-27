@@ -21,6 +21,9 @@
 - The Odyssey (07/17/2026)
 - Quiz Show (07/24/2026)
 - The King's Speech (07/25/2026)
+- Quiz Show (07/25/2026)
+- The Odyssey (07/26/2026)
+- Rush Hour (07/27/2026)
 
 ### June 2026
 - Sideways (06/03/2026)
