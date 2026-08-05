@@ -4,6 +4,14 @@
 
 ---
 
+### August 2026
+- Signs (08/01/2026)
+- Project Hail Mary (08/03/2026)
+- Charlie and the Chocolate Factory (08/03/2026)
+- Nirvana: The Band - The Show - The Movie (08/04/2026)
+- Chocolat (08/04/2026)
+- Titanic (08/05/2026)
+
 ### July 2026
 - Before Sunrise (07/06/2026)
 - Pressure (07/06/2026)
@@ -24,9 +32,12 @@
 - Quiz Show (07/25/2026)
 - The Odyssey (07/26/2026)
 - Rush Hour (07/27/2026)
+- Rush Hour 2 (07/27/2026)
+- Companion (07/28/2026)
 - Charlie and the Chocolate Factory (07/28/2026)
 - The Lion King (07/29/2026)
 - Pleasantville (07/30/2026)
+- Unbreakable (07/31/2026)
 
 ### June 2026
 - Sideways (06/03/2026)
