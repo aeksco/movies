@@ -11,6 +11,8 @@
 - Nirvana: The Band - The Show - The Movie (08/04/2026)
 - Chocolat (08/04/2026)
 - Titanic (08/05/2026)
+- Lorne (08/05/2026)
+- Django Unchained (08/05/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
