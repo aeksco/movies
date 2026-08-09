@@ -13,6 +13,8 @@
 - Titanic (08/05/2026)
 - Lorne (08/05/2026)
 - Django Unchained (08/05/2026)
+- The Producers (08/06/2026)
+- My Cousin Vinny (08/08/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
