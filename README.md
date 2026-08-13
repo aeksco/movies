@@ -15,6 +15,8 @@
 - Django Unchained (08/05/2026)
 - The Producers (08/06/2026)
 - My Cousin Vinny (08/08/2026)
+- The Crucible (08/11/2026)
+- The Talented Mr. Ripley (08/12/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
