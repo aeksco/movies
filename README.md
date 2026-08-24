@@ -17,6 +17,17 @@
 - My Cousin Vinny (08/08/2026)
 - The Crucible (08/11/2026)
 - The Talented Mr. Ripley (08/12/2026)
+- Waiting for Guffman (08/15/2026)
+- Cold Mountain (08/16/2026)
+- Project Hail Mary (08/17/2026)
+- Vertigo (08/18/2026)
+- X-Men: First Class (08/19/2026)
+- Best in Show (08/20/2026)
+- Disclosure Day (08/21/2026)
+- The Founder (08/22/2026)
+- Ready Player One (08/23/2026)
+- Analyze This (08/24/2026)
+- Blue Moon (08/24/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
