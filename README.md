@@ -28,6 +28,7 @@
 - Ready Player One (08/23/2026)
 - Analyze This (08/24/2026)
 - Blue Moon (08/24/2026)
+- Nirvana: The Band - The Show - The Movie (08/25/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
