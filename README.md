@@ -31,6 +31,9 @@
 - Nirvana: The Band - The Show - The Movie (08/25/2026)
 - Lincoln (08/25/2026)
 - Zodiac (08/26/2026)
+- The Odyssey (08/28/2026)
+- The Talented Mr. Ripley (08/29/2026)
+- Young Washington (08/31/2026)
 
 ### July 2026
 - Before Sunrise (07/06/2026)
