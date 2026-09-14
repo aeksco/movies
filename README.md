@@ -4,6 +4,14 @@
 
 ---
 
+### September 2026
+- The End of Oak Street (09/04/2026)
+- Pressure (09/05/2026)
+- Uncut Gems (09/11/2026)
+- Boogie Nights (09/12/2026)
+- Boogie Nights (09/13/2026)
+- Amadeus (09/14/2026)
+
 ### August 2026
 - Signs (08/01/2026)
 - Project Hail Mary (08/03/2026)
