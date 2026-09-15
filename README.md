@@ -16,6 +16,7 @@
 - Boogie Nights (09/12/2026)
 - Boogie Nights (09/13/2026)
 - Amadeus (09/14/2026)
+- Shutter Island (09/15/2026)
 
 ### August 2026
 - Signs (08/01/2026)
