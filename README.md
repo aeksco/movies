@@ -5,8 +5,13 @@
 ---
 
 ### September 2026
+- Gone Girl (09/03/2026)
+- Along Came Polly (09/03/2026)
 - The End of Oak Street (09/04/2026)
-- Pressure (09/05/2026)
+- The Hummingbird Project (09/4/2026)
+- There Will Be Blood (09/05/2026)
+- Pressure (09/06/2026)
+- Anora (09/10/2026)
 - Uncut Gems (09/11/2026)
 - Boogie Nights (09/12/2026)
 - Boogie Nights (09/13/2026)
