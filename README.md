@@ -17,6 +17,8 @@
 - Boogie Nights (09/13/2026)
 - Amadeus (09/14/2026)
 - Shutter Island (09/15/2026)
+- Ma Rainey's Black Bottom (09/18/2026)
+- Moneyball (09/24/2026)
 
 ### August 2026
 - Signs (08/01/2026)
