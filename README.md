@@ -19,6 +19,13 @@
 - Shutter Island (09/15/2026)
 - Ma Rainey's Black Bottom (09/18/2026)
 - Moneyball (09/24/2026)
+- Drive (09/24/2026)
+- Coyote vs. Acme (09/25/2026)
+- Frost/Nixon (09/26/2026)
+- The Age of Disclosure (09/26/2026)
+- Bugonia (09/26/2026)
+- The Ides of March (09/26/2026)
+- The Irishman (09/27/2026)
 
 ### August 2026
 - Signs (08/01/2026)
