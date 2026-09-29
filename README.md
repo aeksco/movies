@@ -26,6 +26,7 @@
 - Bugonia (09/26/2026)
 - The Ides of March (09/26/2026)
 - The Irishman (09/27/2026)
+- The Ides of March (09/28/2026)
 
 ### August 2026
 - Signs (08/01/2026)
