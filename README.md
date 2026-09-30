@@ -29,6 +29,7 @@
 - The Ides of March (09/28/2026)
 - Nuremberg (09/29/2026)
 - Resident Evil (09/29/2026)
+- Green Book (09/30/2026)
 
 ### August 2026
 - Signs (08/01/2026)
