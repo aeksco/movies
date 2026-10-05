@@ -7,6 +7,8 @@
 ### October 2026
 - Primetime (10/01/2026)
 - Blue Moon (10/02/2026)
+- La La Land (10/03/2026)
+- The Aviator (10/04/2026)
 
 ### September 2026
 - Gone Girl (09/03/2026)
