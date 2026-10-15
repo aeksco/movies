@@ -10,6 +10,12 @@
 - La La Land (10/03/2026)
 - The Aviator (10/04/2026)
 - Charlie Wilson's War (10/05/2026)
+- Digger (10/05/2026)
+- The Last Emperor (10/08/2026)
+- The Social Network (10/09/2026)
+- Digger (10/10/2026)
+- Lincoln (10/14/2025)
+- You Can See Everything (10/15/2026)
 
 ### September 2026
 - Gone Girl (09/03/2026)
