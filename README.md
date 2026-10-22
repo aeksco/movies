@@ -15,7 +15,10 @@
 - The Social Network (10/09/2026)
 - Digger (10/10/2026)
 - Lincoln (10/14/2025)
+- The Hobbit: An Unexpected Journey Extended Edition (01/15/2026)
 - You Can See Everything (10/15/2026)
+- Silence of the Lambs (10/21/2026)
+- The Social Reckoning (10/21/2026)
 
 ### September 2026
 - Gone Girl (09/03/2026)
