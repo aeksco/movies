@@ -4,6 +4,12 @@
 
 ---
 
+### November 2026
+- The Only Living Pickpocket in New York (11/01/2026)
+- Casino Royale (11/03/2026)
+- Quiz Show (11/08/2026)
+- Resident Evil (11/11/2026)
+
 ### October 2026
 - Primetime (10/01/2026)
 - Blue Moon (10/02/2026)
@@ -23,6 +29,9 @@
 - Enigma (10/25/2026)
 - The Remains of the Day (10/26/2026)
 - Hocus Pocus (10/27/2026)
+- A.I. Artificial Intelligence (10/28/2026)
+- Superstar (10/28/2026)
+- Prometheus (10/28/2026)
 
 ### September 2026
 - Gone Girl (09/03/2026)
