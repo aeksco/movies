@@ -9,6 +9,7 @@
 - Casino Royale (11/03/2026)
 - Quiz Show (11/08/2026)
 - Resident Evil (11/11/2026)
+- Primetime (11/11/2026)
 
 ### October 2026
 - Primetime (10/01/2026)
